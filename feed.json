@@ -1,0 +1,40 @@
+{
+    "feed": [
+        {
+            "channel": "无人知晓",
+            "portal": "https://www.xiaoyuzhoufm.com/podcast/611719d3cb0b82e1df0ad29e",
+            "url": "https://feed.xyzfm.space/ypn9dydpbxpc"
+        },
+        {
+            "channel": "纵横四海",
+            "portal": "https://www.xiaoyuzhoufm.com/podcast/62694abdb221dd5908417d1e",
+            "url": "https://www.ximalaya.com/album/67531569.xml",
+            "order": "ascending"
+        },
+        {
+            "channel": "知行小酒馆",
+            "portal": "https://www.xiaoyuzhoufm.com/podcast/6013f9f58e2f7ee375cf4216",
+            "url": "https://feed.xyzfm.space/j8yp8gxkmgqr"
+        },
+        {
+            "channel": "半拿铁",
+            "portal": "https://www.xiaoyuzhoufm.com/podcast/62382c1103bea1ebfffa1c00",
+            "url": "https://proxy.wavpub.com/caffebreve.xml"
+        },
+        {
+            "channel": "商业就是这样",
+            "portal": "https://www.xiaoyuzhoufm.com/podcast/6022a180ef5fdaddc30bb101",
+            "url": "http://www.ximalaya.com/album/46587439.xml"
+        },
+        {
+            "channel": "奇想驿",
+            "portal": "https://www.xiaoyuzhoufm.com/podcast/6034daea97755b8fc9c66480",
+            "url": "https://feed.xyzfm.space/4wq8y3ymmc7p"
+        },
+        {
+            "channel": "硬地骇客",
+            "portal": "https://www.xiaoyuzhoufm.com/podcast/640ee2438be5d40013fe4a87",
+            "url": "https://feed.xyzfm.space/byhkljlbep9j"
+        }
+    ]
+}
