@@ -21,3 +21,6 @@
 ## 硬地骇客
 - 2023/12/11 [EP39 零基础转行程序员, 玩滑板的设计师, 不小心就在瑞典找到了工作 | 对话诗片作者](https://www.xiaoyuzhoufm.com/episode/6576f72f6d7f010fe03e8f5f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6576f72f6d7f010fe03e8f5f/media.xyzcdn.net/lv4PyRYQ-6OzaItVAVMNUWFu0zar.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
+## 后互联网时代的乱弹
+- 2024/01/06 [第96期 数据局在行动](https://hosting.wavpub.cn/pie/ep96/) | [音频](https://tk.wavpub.com/WPDL_JmxvNTPnpBYDyRXwnDjykSTWPbPJkPCPaTvXBSrBZkNksvDeUmANETmLAp-d0.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+
