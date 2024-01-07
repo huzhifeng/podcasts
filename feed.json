@@ -24,7 +24,9 @@
         {
             "channel": "商业就是这样",
             "portal": "https://www.xiaoyuzhoufm.com/podcast/6022a180ef5fdaddc30bb101",
-            "url": "http://www.ximalaya.com/album/46587439.xml"
+            "portal2": "https://thatisbiz.fireside.fm/",
+            "url": "http://www.ximalaya.com/album/46587439.xml",
+            "url2": "https://feeds.fireside.fm/thatisbiz/rss"
         },
         {
             "channel": "奇想驿",
