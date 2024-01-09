@@ -22,5 +22,5 @@
 - 2024/01/06 [第96期 数据局在行动](https://hosting.wavpub.cn/pie/ep96/) | [音频](https://tk.wavpub.com/WPDL_JmxvNTPnpBYDyRXwnDjykSTWPbPJkPCPaTvXBSrBZkNksvDeUmANETmLAp-d0.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/01/02 [EP42 有钱不焦虑，全情投入无代码 | 对话Momen创始人蒋耀锴](https://www.xiaoyuzhoufm.com/episode/6593f6f42c0400adcf3de2f4) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6593f6f42c0400adcf3de2f4/media.xyzcdn.net/lmNlGOSnsA8dXjUgKN563xfQ3jLz.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/01/08 [EP43 要不要 “感恩” 公司？董宇辉和孟羽童给出了不一样的答案](https://www.xiaoyuzhoufm.com/episode/659bcf783b60e1feaf908361) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/659bcf783b60e1feaf908361/media.xyzcdn.net/lvFSr_6_TqTYitSg1XE1wZLjquoW.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
