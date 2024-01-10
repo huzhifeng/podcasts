@@ -10,7 +10,7 @@
 - 2024/01/01 [E122 酒后吐真言！这期 2023 年投资总结，总有一条今年的你能用上](https://www.xiaoyuzhoufm.com/episode/659250e5ed98191e9b9c52a3) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/659250e5ed98191e9b9c52a3/media.xyzcdn.net/lsql2Mj7ggfCctILViYaKrXbT2Cc.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/01/03 [No.83 年终企划「震楼机」财经新闻 TOP10](https://www.ximalaya.com/sound/697552082) | [音频](https://dl.wavpub.com/item/227_31597100_1056.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/01/10 [No.84 新加坡的崛起之路](https://www.ximalaya.com/sound/698873624) | [音频](https://dl.wavpub.com/item/227_31597215_6673.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/01/03 [Vol.142 串台《晚点聊》：安利2023，挖坑2024](https://www.ximalaya.com/sound/697550234) | [音频](https://audio.xmcdn.com/storages/e8e2-audiofreehighqps/A4/ED/GKwRIJEJaweMAePxIwKWSpWK-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
