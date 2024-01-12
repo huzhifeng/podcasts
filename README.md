@@ -7,7 +7,7 @@
 - 2023/12/31 [EP39 2023，我从播客获得的巨大成长](https://www.ximalaya.com/sound/696883992) | [音频](https://audio.xmcdn.com/storages/16f2-audiofreehighqps/2D/B3/GKwRINsJb1ksBQbawQKXsNG-.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/01/01 [E122 酒后吐真言！这期 2023 年投资总结，总有一条今年的你能用上](https://www.xiaoyuzhoufm.com/episode/659250e5ed98191e9b9c52a3) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/659250e5ed98191e9b9c52a3/media.xyzcdn.net/lsql2Mj7ggfCctILViYaKrXbT2Cc.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/01/12 [E123 对话聂辉华：财商、情商、智商再高，笑到最后都得靠「熬商」](https://www.xiaoyuzhoufm.com/episode/65a0d5af926ad7aad0d6380b) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65a0d5af926ad7aad0d6380b/media.xyzcdn.net/lgh1dgVzzXcqgdBkKZga7mXY667p.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/01/10 [No.84 新加坡的崛起之路](https://www.ximalaya.com/sound/698873624) | [音频](https://dl.wavpub.com/item/227_31597215_6673.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
