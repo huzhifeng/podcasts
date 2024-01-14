@@ -19,7 +19,7 @@
 - 2023/09/07 [【串台 · 知行小酒馆】和雨白聊聊，中年人是崩溃还是瓦解](https://www.xiaoyuzhoufm.com/episode/64f9c5446884ccbb194e2cfc) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/64f9c5446884ccbb194e2cfc/media.xyzcdn.net/lvATT0_QjI31XHWdwI1CR5bjsHZH.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2024/01/06 [第96期 数据局在行动](https://hosting.wavpub.cn/pie/ep96/) | [音频](https://tk.wavpub.com/WPDL_JmxvNTPnpBYDyRXwnDjykSTWPbPJkPCPaTvXBSrBZkNksvDeUmANETmLAp-d0.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2024/01/14 [第97期 编程已死 编程万岁](https://hosting.wavpub.cn/pie/ep97/) | [音频](https://tk.wavpub.com/WPDL_BfFtAQamnqzCHPBWvsjWRdsMRgJUgcVquLjPnNPMdxMdwcGJNzgKeGJdgS-a2.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2024/01/08 [EP43 要不要 “感恩” 公司？董宇辉和孟羽童给出了不一样的答案](https://www.xiaoyuzhoufm.com/episode/659bcf783b60e1feaf908361) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/659bcf783b60e1feaf908361/media.xyzcdn.net/lvFSr_6_TqTYitSg1XE1wZLjquoW.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
