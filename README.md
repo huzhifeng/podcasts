@@ -22,5 +22,5 @@
 - 2024/01/21 [第98期 新年的开源榜单和大模型](https://hosting.wavpub.cn/pie/ep98/) | [音频](https://tk.wavpub.com/WPDL_FmCYZcZkDKWzLFPrBsuUpnwYzZDueaXqxxAEPapqwbDtAgAjxzUDRjzrvg-a7.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/01/15 [EP44 OpenAI GPTs 里蕴藏的搞钱机会在哪里？](https://www.xiaoyuzhoufm.com/episode/65a51de3ab66818faf3d5b91) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65a51de3ab66818faf3d5b91/media.xyzcdn.net/lli7jP9rnHg4_NrW_chH-ofCHWSd.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/01/22 [EP45 独立开发如何用好 SEO 助力出海增长 | 对话子木](https://www.xiaoyuzhoufm.com/episode/65ae4e3916860d3ef18de9e8) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65ae4e3916860d3ef18de9e8/media.xyzcdn.net/lpI9bfbZInJqUhxvQQp2nHnKxuzy.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
