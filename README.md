@@ -7,7 +7,7 @@
 - 2023/12/31 [EP39 2023，我从播客获得的巨大成长](https://www.ximalaya.com/sound/696883992) | [音频](https://audio.xmcdn.com/storages/16f2-audiofreehighqps/2D/B3/GKwRINsJb1ksBQbawQKXsNG-.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/01/15 [E124 对话《繁花》股票顾问应健中：还原 90 年代上海股市、那些与机遇共舞的人们，以及我亲历的野蛮生长的时代](https://www.xiaoyuzhoufm.com/episode/65a4cdd32e26fb9934fbeaeb) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65a4cdd32e26fb9934fbeaeb/media.xyzcdn.net/ls6HmoHRF0DrA5iJQIj5s5l-L2Uq.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/01/26 [E125 与陈行甲聊聊辞官做公益的这七年](https://www.xiaoyuzhoufm.com/episode/65b340ab6a43241529a21bae) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65b340ab6a43241529a21bae/media.xyzcdn.net/lgxAmCPmfSh5tCoBZpfXHJWNC-C0.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/01/24 [东方树叶｜ 86.那些年的春节送礼硬通货](https://www.ximalaya.com/sound/701852286) | [音频](https://dl.wavpub.com/item/227_31597439_3447.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
