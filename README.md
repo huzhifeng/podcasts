@@ -10,7 +10,7 @@
 - 2024/01/26 [E125 与陈行甲聊聊辞官做公益的这七年](https://www.xiaoyuzhoufm.com/episode/65b340ab6a43241529a21bae) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65b340ab6a43241529a21bae/media.xyzcdn.net/lgxAmCPmfSh5tCoBZpfXHJWNC-C0.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/01/24 [东方树叶｜ 86.那些年的春节送礼硬通货](https://www.ximalaya.com/sound/701852286) | [音频](https://dl.wavpub.com/item/227_31597439_3447.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/01/31 [影石Insta360｜ 87.英伟达黄仁勋与它的对手们](https://www.ximalaya.com/sound/703281410) | [音频](https://dl.wavpub.com/item/227_31597527_1702.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/01/24 [Vol.145 网红景德镇，一段商业史](https://www.ximalaya.com/sound/701855479) | [音频](https://audio.xmcdn.com/storages/b3a2-audiofreehighqps/38/EE/GKwRIDoJhu8FARkY4wKfyz4i-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
