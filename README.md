@@ -13,7 +13,7 @@
 - 2024/01/31 [影石Insta360｜ 87.英伟达黄仁勋与它的对手们](https://www.ximalaya.com/sound/703281410) | [音频](https://dl.wavpub.com/item/227_31597527_1702.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/01/24 [Vol.145 网红景德镇，一段商业史](https://www.ximalaya.com/sound/701855479) | [音频](https://audio.xmcdn.com/storages/b3a2-audiofreehighqps/38/EE/GKwRIDoJhu8FARkY4wKfyz4i-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/01/31 [Vol.146 OpenAI没做成的机器人，已经开始赚钱](https://www.ximalaya.com/sound/703348288) | [音频](https://audio.xmcdn.com/storages/19e1-audiofreehighqps/3D/7F/GKwRIJEJkCCbALqOIgKi7F-1-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/01/30 [【串台 · about热水】和宇野&阿娴聊聊，你的电子囤积症，治好了吗？](https://www.xiaoyuzhoufm.com/episode/65b892e6dde969cfdc19a22f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65b892e6dde969cfdc19a22f/media.xyzcdn.net/lif5cepf4jmS7CpkNPsP-5QEhaam.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
