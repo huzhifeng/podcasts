@@ -19,7 +19,7 @@
 - 2024/01/30 [【串台 · about热水】和宇野&阿娴聊聊，你的电子囤积症，治好了吗？](https://www.xiaoyuzhoufm.com/episode/65b892e6dde969cfdc19a22f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65b892e6dde969cfdc19a22f/media.xyzcdn.net/lif5cepf4jmS7CpkNPsP-5QEhaam.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2024/01/27 [第99期 熵增？第一性原理？](https://hosting.wavpub.cn/pie/ep99/) | [音频](https://tk.wavpub.com/WPDL_nwJHErxJubmuxPwnDqyZcGvZsMgzuHCTqAQJvwHSVJarLPZzVhWDdFeeML-f0.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2024/02/04 [第100期 新起点](https://hosting.wavpub.cn/pie/ep100/) | [音频](https://tk.wavpub.com/WPDL_YsCgQhGwFnaZWFUtXhafSkDzPCUyfVATuBDmxBkvaQUphuDFHNgxDHgZvH-03.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2024/01/29 [EP46 0到1之后，我们应该如何正确的 Scale 业务？](https://www.xiaoyuzhoufm.com/episode/65b7a61f6a43241529c3ae1d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65b7a61f6a43241529c3ae1d/media.xyzcdn.net/lrEibcEeEEYbR2HR7voe55UO_KXL.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
