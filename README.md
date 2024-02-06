@@ -10,7 +10,7 @@
 - 2024/02/02 [E126 花 100 万去美国开热狗店，四个月回本却遭同行举报关门？听潘子返场讲她的海外开店之旅！](https://www.xiaoyuzhoufm.com/episode/65bb4673dde969cfdc330b8f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65bb4673dde969cfdc330b8f/media.xyzcdn.net/lsft6tYwKncCMRmcx0gztN7JLlXt.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/01/31 [影石Insta360｜ 87.英伟达黄仁勋与它的对手们](https://www.ximalaya.com/sound/703281410) | [音频](https://dl.wavpub.com/item/227_31597527_1702.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/02/06 [No.88 新年新奔头，从头开始聊奔驰](https://www.ximalaya.com/sound/704843170) | [音频](https://dl.wavpub.com/item/227_31597619_0634.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/01/31 [Vol.146 OpenAI没做成的机器人，已经开始赚钱](https://www.ximalaya.com/sound/703348288) | [音频](https://audio.xmcdn.com/storages/19e1-audiofreehighqps/3D/7F/GKwRIJEJkCCbALqOIgKi7F-1-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
@@ -22,5 +22,5 @@
 - 2024/02/04 [第100期 新起点](https://hosting.wavpub.cn/pie/ep100/) | [音频](https://tk.wavpub.com/WPDL_YsCgQhGwFnaZWFUtXhafSkDzPCUyfVATuBDmxBkvaQUphuDFHNgxDHgZvH-03.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/01/29 [EP46 0到1之后，我们应该如何正确的 Scale 业务？](https://www.xiaoyuzhoufm.com/episode/65b7a61f6a43241529c3ae1d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65b7a61f6a43241529c3ae1d/media.xyzcdn.net/lrEibcEeEEYbR2HR7voe55UO_KXL.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/02/05 [EP47 和美女嘉宾一起翻越“增长”这座大山|对话OpencordAI联创Kelly](https://www.xiaoyuzhoufm.com/episode/65c0deebb6c9256aee98a57d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65c0deebb6c9256aee98a57d/media.xyzcdn.net/lsi8rBP4V4nKMuqB_kl8G7lmZ_lo.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
