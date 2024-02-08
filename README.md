@@ -10,7 +10,7 @@
 - 2024/02/02 [E126 花 100 万去美国开热狗店，四个月回本却遭同行举报关门？听潘子返场讲她的海外开店之旅！](https://www.xiaoyuzhoufm.com/episode/65bb4673dde969cfdc330b8f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65bb4673dde969cfdc330b8f/media.xyzcdn.net/lsft6tYwKncCMRmcx0gztN7JLlXt.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/02/06 [No.88 新年新奔头，从头开始聊奔驰](https://www.ximalaya.com/sound/704843170) | [音频](https://dl.wavpub.com/item/227_31597619_0634.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/02/08 [2024 春节特别番外｜饺子饺子饺饺子，我们也很爱大家](https://www.ximalaya.com/sound/704137935) | [音频](https://dl.wavpub.com/item/227_31597658_5228.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/01/31 [Vol.146 OpenAI没做成的机器人，已经开始赚钱](https://www.ximalaya.com/sound/703348288) | [音频](https://audio.xmcdn.com/storages/19e1-audiofreehighqps/3D/7F/GKwRIJEJkCCbALqOIgKi7F-1-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
