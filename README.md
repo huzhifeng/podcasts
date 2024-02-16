@@ -7,7 +7,7 @@
 - 2023/12/31 [EP39 2023，我从播客获得的巨大成长](https://www.ximalaya.com/sound/696883992) | [音频](https://audio.xmcdn.com/storages/16f2-audiofreehighqps/2D/B3/GKwRINsJb1ksBQbawQKXsNG-.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/02/02 [E126 花 100 万去美国开热狗店，四个月回本却遭同行举报关门？听潘子返场讲她的海外开店之旅！](https://www.xiaoyuzhoufm.com/episode/65bb4673dde969cfdc330b8f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65bb4673dde969cfdc330b8f/media.xyzcdn.net/lsft6tYwKncCMRmcx0gztN7JLlXt.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/02/16 [E127 对话经济学者朱宁：买没买过“永远涨”的资产，这些关于泡沫的真问题都值得你听](https://www.xiaoyuzhoufm.com/episode/65c31d02513a776b5718592a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65c31d02513a776b5718592a/media.xyzcdn.net/lr7dyW4n4bou9-h3Y8Ev57stIr9F.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/02/08 [2024 春节特别番外｜饺子饺子饺饺子，我们也很爱大家](https://www.ximalaya.com/sound/704137935) | [音频](https://dl.wavpub.com/item/227_31597658_5228.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
