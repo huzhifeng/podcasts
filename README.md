@@ -19,7 +19,7 @@
 - 2024/02/11 [和老爹聊聊：读书如何影响了我们的命运（方言版）](https://www.xiaoyuzhoufm.com/episode/65c839a90bef6c2074d27174) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65c839a90bef6c2074d27174/media.xyzcdn.net/ljFv7ZFgmiyNZuNiYLWTh8I-KQ6F.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2024/02/04 [第100期 新起点](https://hosting.wavpub.cn/pie/ep100/) | [音频](https://tk.wavpub.com/WPDL_YsCgQhGwFnaZWFUtXhafSkDzPCUyfVATuBDmxBkvaQUphuDFHNgxDHgZvH-03.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2024/02/18 [第101期 Sora和春晚](https://hosting.wavpub.cn/pie/ep101/) | [音频](https://tk.wavpub.com/WPDL_pRTKxLGhGhYPSwbdYyEsbGhaHRvnBWXGKDQdVkNCBRyjUEBkxvcXNFRjHk-bd.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2024/02/05 [EP47 和美女嘉宾一起翻越“增长”这座大山|对话OpencordAI联创Kelly](https://www.xiaoyuzhoufm.com/episode/65c0deebb6c9256aee98a57d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65c0deebb6c9256aee98a57d/media.xyzcdn.net/lsi8rBP4V4nKMuqB_kl8G7lmZ_lo.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
