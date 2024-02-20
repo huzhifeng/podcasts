@@ -22,5 +22,5 @@
 - 2024/02/18 [第101期 Sora和春晚](https://hosting.wavpub.cn/pie/ep101/) | [音频](https://tk.wavpub.com/WPDL_pRTKxLGhGhYPSwbdYyEsbGhaHRvnBWXGKDQdVkNCBRyjUEBkxvcXNFRjHk-bd.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/02/05 [EP47 和美女嘉宾一起翻越“增长”这座大山|对话OpencordAI联创Kelly](https://www.xiaoyuzhoufm.com/episode/65c0deebb6c9256aee98a57d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65c0deebb6c9256aee98a57d/media.xyzcdn.net/lsi8rBP4V4nKMuqB_kl8G7lmZ_lo.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/02/19 [EP48 继GPTs之后，再聊聊Sora这个期货能否搞钱](https://www.xiaoyuzhoufm.com/episode/65d358d1dde969cfdcc66982) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65d358d1dde969cfdcc66982/media.xyzcdn.net/lqqHUD7r4X5ZbwBGoc4knxRSyri9.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
