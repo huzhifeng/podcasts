@@ -10,7 +10,7 @@
 - 2024/02/16 [E127 对话经济学者朱宁：买没买过“永远涨”的资产，这些关于泡沫的真问题都值得你听](https://www.xiaoyuzhoufm.com/episode/65c31d02513a776b5718592a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65c31d02513a776b5718592a/media.xyzcdn.net/lr7dyW4n4bou9-h3Y8Ev57stIr9F.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/02/08 [2024 春节特别番外｜饺子饺子饺饺子，我们也很爱大家](https://www.ximalaya.com/sound/704137935) | [音频](https://dl.wavpub.com/item/227_31597658_5228.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/02/21 [影石Insta360｜ 89.世界之窗 YouTube](https://www.ximalaya.com/sound/707836677) | [音频](https://dl.wavpub.com/item/227_31597857_5119.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/01/31 [Vol.146 OpenAI没做成的机器人，已经开始赚钱](https://www.ximalaya.com/sound/703348288) | [音频](https://audio.xmcdn.com/storages/19e1-audiofreehighqps/3D/7F/GKwRIJEJkCCbALqOIgKi7F-1-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
