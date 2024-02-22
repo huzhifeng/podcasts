@@ -13,7 +13,7 @@
 - 2024/02/21 [影石Insta360｜ 89.世界之窗 YouTube](https://www.ximalaya.com/sound/707836677) | [音频](https://dl.wavpub.com/item/227_31597857_5119.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/01/31 [Vol.146 OpenAI没做成的机器人，已经开始赚钱](https://www.ximalaya.com/sound/703348288) | [音频](https://audio.xmcdn.com/storages/19e1-audiofreehighqps/3D/7F/GKwRIJEJkCCbALqOIgKi7F-1-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/02/21 [Vol.147 120岁的大富翁，还能登顶手游吸金榜](https://www.ximalaya.com/sound/707748870) | [音频](https://audio.xmcdn.com/storages/b40f-audiofreehighqps/3E/C7/GKwRIUEJqrT3AN_c1wKrFSmK-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/02/11 [和老爹聊聊：读书如何影响了我们的命运（方言版）](https://www.xiaoyuzhoufm.com/episode/65c839a90bef6c2074d27174) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65c839a90bef6c2074d27174/media.xyzcdn.net/ljFv7ZFgmiyNZuNiYLWTh8I-KQ6F.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
