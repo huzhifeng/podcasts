@@ -7,7 +7,7 @@
 - 2023/12/31 [EP39 2023，我从播客获得的巨大成长](https://www.ximalaya.com/sound/696883992) | [音频](https://audio.xmcdn.com/storages/16f2-audiofreehighqps/2D/B3/GKwRINsJb1ksBQbawQKXsNG-.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/02/16 [E127 对话经济学者朱宁：买没买过“永远涨”的资产，这些关于泡沫的真问题都值得你听](https://www.xiaoyuzhoufm.com/episode/65c31d02513a776b5718592a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65c31d02513a776b5718592a/media.xyzcdn.net/lr7dyW4n4bou9-h3Y8Ev57stIr9F.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/02/23 [E128 很难，但没上班难！这间 10 平方的植物店，我还要再开 100 年（附职场人到老板的思维转换心得](https://www.xiaoyuzhoufm.com/episode/65d8198035dd8780ed1d7d54) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65d8198035dd8780ed1d7d54/media.xyzcdn.net/ln_6ev6FidC_dwOL2Fv5vUcuRsLB.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/02/21 [影石Insta360｜ 89.世界之窗 YouTube](https://www.ximalaya.com/sound/707836677) | [音频](https://dl.wavpub.com/item/227_31597857_5119.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
