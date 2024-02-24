@@ -4,7 +4,7 @@
 - 2023/11/28 [E32 孟岩对话成庆：如果生命只是大梦一场](https://www.xiaoyuzhoufm.com/episode/65655195f10bbce6353705cc) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/65655195f10bbce6353705cc/media.xyzcdn.net/ln7NBY7LIWJy1qbay5x0rgLRTQGA.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
 
 ## 纵横四海
-- 2023/12/31 [EP39 2023，我从播客获得的巨大成长](https://www.ximalaya.com/sound/696883992) | [音频](https://audio.xmcdn.com/storages/16f2-audiofreehighqps/2D/B3/GKwRINsJb1ksBQbawQKXsNG-.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
+- 2024/02/24 [EP40《情绪》：如何精神稳定地“发疯”](https://www.ximalaya.com/sound/708501701) | [音频](https://audio.xmcdn.com/storages/74b7-audiofreehighqps/64/7C/GKwRIJEJrxsdCDajiAKs05eP.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
 - 2024/02/23 [E128 很难，但没上班难！这间 10 平方的植物店，我还要再开 100 年（附职场人到老板的思维转换心得](https://www.xiaoyuzhoufm.com/episode/65d8198035dd8780ed1d7d54) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65d8198035dd8780ed1d7d54/media.xyzcdn.net/ln_6ev6FidC_dwOL2Fv5vUcuRsLB.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
