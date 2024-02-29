@@ -13,7 +13,7 @@
 - 2024/02/28 [欧莱雅男士丨❄️ 90.巴菲特是怎么炼成的](https://www.ximalaya.com/sound/709255287) | [音频](https://dl.wavpub.com/item/227_31597993_6320.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/02/25 [好消息好消息](https://www.ximalaya.com/sound/708827023) | [音频](https://audio.xmcdn.com/storages/45db-audiofreehighqps/81/D8/GKwRIRwJsSYXAAyTCwKtlGV9-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/02/28 [Vol.148 美图，东张西望的10年](https://www.ximalaya.com/sound/709601796) | [音频](https://audio.xmcdn.com/storages/e933-audiofreehighqps/C9/50/GKwRIMAJtSP1APFYogKvQmap-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/02/11 [和老爹聊聊：读书如何影响了我们的命运（方言版）](https://www.xiaoyuzhoufm.com/episode/65c839a90bef6c2074d27174) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65c839a90bef6c2074d27174/media.xyzcdn.net/ljFv7ZFgmiyNZuNiYLWTh8I-KQ6F.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
