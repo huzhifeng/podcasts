@@ -7,7 +7,7 @@
 - 2024/02/24 [EP40《情绪》：如何精神稳定地“发疯”](https://www.ximalaya.com/sound/708501701) | [音频](https://audio.xmcdn.com/storages/74b7-audiofreehighqps/64/7C/GKwRIJEJrxsdCDajiAKs05eP-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/02/23 [E128 很难，但没上班难！这间 10 平方的植物店，我还要再开 100 年（附职场人到老板的思维转换心得](https://www.xiaoyuzhoufm.com/episode/65d8198035dd8780ed1d7d54) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65d8198035dd8780ed1d7d54/media.xyzcdn.net/ln_6ev6FidC_dwOL2Fv5vUcuRsLB.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/03/01 [E129 我，长期投资 A 股，真的能赚钱吗？这里有一份有效期 30 年以上的答卷](https://www.xiaoyuzhoufm.com/episode/65e17c6aad514f3bc80ab9e5) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65e17c6aad514f3bc80ab9e5/media.xyzcdn.net/loUxe7vKG98ggUwTb7gFyjKURzEg.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/02/28 [欧莱雅男士丨❄️ 90.巴菲特是怎么炼成的](https://www.ximalaya.com/sound/709255287) | [音频](https://dl.wavpub.com/item/227_31597993_6320.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
