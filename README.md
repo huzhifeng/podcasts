@@ -22,5 +22,5 @@
 - 2024/03/02 [第102期 假如媒体人懂数据](https://hosting.wavpub.cn/pie/ep102/) | [音频](https://tk.wavpub.com/WPDL_DxyytHRkSkQmxkfLzGmsqgYhDFAQwwDsSWTsgnsgMQzktmLyKEZjDdvjSm-d6.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/02/26 [EP49 串台节目：和"生存现场"闲聊职场经历和创业](https://www.xiaoyuzhoufm.com/episode/65dc2fd735dd8780ed3a6753) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65dc2fd735dd8780ed3a6753/media.xyzcdn.net/lu1LbIgDfRFP-HVDEq0fJzFzRhCC.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/03/04 [EP50 我们被抄袭了，大家说说该怎么办？](https://www.xiaoyuzhoufm.com/episode/65e5b923cfdcad8d2c67edba) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65e5b923cfdcad8d2c67edba/media.xyzcdn.net/lkBTPIPM5GX-Q-Ad0MTokT19bxy6.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
