@@ -10,7 +10,7 @@
 - 2024/03/01 [E129 我，长期投资 A 股，真的能赚钱吗？这里有一份有效期 30 年以上的答卷](https://www.xiaoyuzhoufm.com/episode/65e17c6aad514f3bc80ab9e5) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65e17c6aad514f3bc80ab9e5/media.xyzcdn.net/loUxe7vKG98ggUwTb7gFyjKURzEg.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/02/28 [欧莱雅男士丨❄️ 90.巴菲特是怎么炼成的](https://www.ximalaya.com/sound/709255287) | [音频](https://dl.wavpub.com/item/227_31597993_6320.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/03/06 [No.91 流媒体革命者 Netflix](https://www.ximalaya.com/sound/711622892) | [音频](https://dl.wavpub.com/item/227_31598084_5831.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/02/28 [Vol.148 美图，东张西望的10年](https://www.ximalaya.com/sound/709601796) | [音频](https://audio.xmcdn.com/storages/e933-audiofreehighqps/C9/50/GKwRIMAJtSP1APFYogKvQmap-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
