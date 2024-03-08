@@ -7,7 +7,7 @@
 - 2024/02/24 [EP40《情绪》：如何精神稳定地“发疯”](https://www.ximalaya.com/sound/708501701) | [音频](https://audio.xmcdn.com/storages/74b7-audiofreehighqps/64/7C/GKwRIJEJrxsdCDajiAKs05eP-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/03/01 [E129 我，长期投资 A 股，真的能赚钱吗？这里有一份有效期 30 年以上的答卷](https://www.xiaoyuzhoufm.com/episode/65e17c6aad514f3bc80ab9e5) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65e17c6aad514f3bc80ab9e5/media.xyzcdn.net/loUxe7vKG98ggUwTb7gFyjKURzEg.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/03/08 [E130 只是投资失利，又不是世界末日！｜知行读书会](https://www.xiaoyuzhoufm.com/episode/65ea7b3f2d96b6aa807a7bd5) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65ea7b3f2d96b6aa807a7bd5/media.xyzcdn.net/lnOHVY0G7SLmEQ6syY2bJ3UHM7ke.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/03/06 [No.91 流媒体革命者 Netflix](https://www.ximalaya.com/sound/711622892) | [音频](https://dl.wavpub.com/item/227_31598084_5831.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
