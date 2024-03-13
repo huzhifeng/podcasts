@@ -10,7 +10,7 @@
 - 2024/03/08 [E130 只是投资失利，又不是世界末日！｜知行读书会](https://www.xiaoyuzhoufm.com/episode/65ea7b3f2d96b6aa807a7bd5) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65ea7b3f2d96b6aa807a7bd5/media.xyzcdn.net/lnOHVY0G7SLmEQ6syY2bJ3UHM7ke.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/03/06 [No.91 流媒体革命者 Netflix](https://www.ximalaya.com/sound/711622892) | [音频](https://dl.wavpub.com/item/227_31598084_5831.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/03/13 [No.92 查理·芒格是怎么炼成的](https://www.ximalaya.com/sound/713744710) | [音频](https://dl.wavpub.com/item/227_31598203_6256.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/03/06 [Vol.149 小历史 | 1914，一场科学管理实验](https://www.ximalaya.com/sound/711735718) | [音频](https://audio.xmcdn.com/storages/c453-audiofreehighqps/CD/54/GKwRIDoJvkuEARjijAKzhBMq-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
