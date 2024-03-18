@@ -13,7 +13,7 @@
 - 2024/03/13 [No.92 查理·芒格是怎么炼成的](https://www.ximalaya.com/sound/713744710) | [音频](https://dl.wavpub.com/item/227_31598203_6256.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/03/13 [Vol.150 “美国贴吧”Reddit为何长青？](https://www.ximalaya.com/sound/713886636) | [音频](https://audio.xmcdn.com/storages/3bb7-audiofreehighqps/B2/16/GKwRIMAJx5HLAO832AK3GUNU-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/03/18 [三周年的回顾和新计划](https://www.ximalaya.com/sound/715349949) | [音频](https://audio.xmcdn.com/storages/9fea-audiofreehighqps/AA/4A/GKwRIMAJzX8lAAXhZAK5Rs3p-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/02/11 [和老爹聊聊：读书如何影响了我们的命运（方言版）](https://www.xiaoyuzhoufm.com/episode/65c839a90bef6c2074d27174) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65c839a90bef6c2074d27174/media.xyzcdn.net/ljFv7ZFgmiyNZuNiYLWTh8I-KQ6F.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
