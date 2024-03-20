@@ -10,7 +10,7 @@
 - 2024/03/15 [E131 我们这一代，要为「生」「育」付出多少钱、时间、机会成本？](https://www.xiaoyuzhoufm.com/episode/65f3bb1b696bd9a8794ec777) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65f3bb1b696bd9a8794ec777/media.xyzcdn.net/lhc0cWnxKZr73oAGopD_CBOjCl6A.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/03/13 [No.92 查理·芒格是怎么炼成的](https://www.ximalaya.com/sound/713744710) | [音频](https://dl.wavpub.com/item/227_31598203_6256.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/03/20 [No.93 Uber 的崛起与混蛋老板的困斗](https://www.ximalaya.com/sound/715963846) | [音频](https://dl.wavpub.com/item/227_31598304_0507.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/03/18 [三周年的回顾和新计划](https://www.ximalaya.com/sound/715349949) | [音频](https://audio.xmcdn.com/storages/9fea-audiofreehighqps/AA/4A/GKwRIMAJzX8lAAXhZAK5Rs3p-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
@@ -22,5 +22,5 @@
 - 2024/03/17 [第104期 字节的历史时刻](https://hosting.wavpub.cn/pie/ep104/) | [音频](https://tk.wavpub.com/WPDL_DZGEtUuYgtYmuJWqXgpfuaDdUANWwmxureCAbdMhXsgxkQkavyKKBLqEEG-65.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/03/11 [EP51 一个毕业设计拿下奇绩的投资 | 对话 Zeabur 创始人](https://www.xiaoyuzhoufm.com/episode/65ef09708e6f71a5b75bcf82) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65ef09708e6f71a5b75bcf82/media.xyzcdn.net/lusybgrIucWtsEQbAs3l2prvfq94.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/03/19 [EP52 如何给软件定价才能让开发者和消费者都满意?](https://www.xiaoyuzhoufm.com/episode/65f9a00a696bd9a8792a2166) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65f9a00a696bd9a8792a2166/media.xyzcdn.net/lu1ree5pU2saT_OOq5ZueJlwct_e.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
