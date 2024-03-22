@@ -7,7 +7,7 @@
 - 2024/03/14 [EP41《超越百岁》：如何在100岁的时候，还能去滑雪？](https://www.ximalaya.com/sound/714108095) | [音频](https://audio.xmcdn.com/storages/99b1-audiofreehighqps/0C/1E/GKwRIasJyJLLCM1d6gK3cBCP.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/03/15 [E131 我们这一代，要为「生」「育」付出多少钱、时间、机会成本？](https://www.xiaoyuzhoufm.com/episode/65f3bb1b696bd9a8794ec777) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65f3bb1b696bd9a8794ec777/media.xyzcdn.net/lhc0cWnxKZr73oAGopD_CBOjCl6A.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/03/22 [E132 250万攒好了，打工10年后，我们决定当数字难民！](https://www.xiaoyuzhoufm.com/episode/65fd2cba2d9eae5d0a5d21d0) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65fd2cba2d9eae5d0a5d21d0/media.xyzcdn.net/lr6igc6XLwdguoVtmljtVdsVdQzI.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/03/20 [No.93 Uber 的崛起与混蛋老板的困斗](https://www.ximalaya.com/sound/715963846) | [音频](https://dl.wavpub.com/item/227_31598304_0507.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
