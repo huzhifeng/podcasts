@@ -10,7 +10,7 @@
 - 2024/03/22 [E132 250万攒好了，打工10年后，我们决定当数字难民！](https://www.xiaoyuzhoufm.com/episode/65fd2cba2d9eae5d0a5d21d0) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/65fd2cba2d9eae5d0a5d21d0/media.xyzcdn.net/lr6igc6XLwdguoVtmljtVdsVdQzI.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/03/20 [No.93 Uber 的崛起与混蛋老板的困斗](https://www.ximalaya.com/sound/715963846) | [音频](https://dl.wavpub.com/item/227_31598304_0507.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/03/27 [No.94 金融大鳄索罗斯](https://www.ximalaya.com/sound/718171744) | [音频](https://dl.wavpub.com/item/227_31598423_6386.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/03/20 [Vol.151 这也能是商标？](https://www.ximalaya.com/sound/716102593) | [音频](https://audio.xmcdn.com/storages/9c91-audiofreehighqps/A7/7F/GKwRIW4J0L9fANk52wK6nx6--aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
@@ -22,5 +22,5 @@
 - 2024/03/23 [第105期 美国人的鸦片战争？](https://hosting.wavpub.cn/pie/ep105/) | [音频](https://tk.wavpub.com/WPDL_tUwfjycFPJcXALKPPNPNdknSZnDgmCwMgKtnrzTHYDWmAvaDwuvftDjdCP-75.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/03/19 [EP52 如何给软件定价才能让开发者和消费者都满意?](https://www.xiaoyuzhoufm.com/episode/65f9a00a696bd9a8792a2166) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/65f9a00a696bd9a8792a2166/media.xyzcdn.net/lu1ree5pU2saT_OOq5ZueJlwct_e.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/03/26 [EP53 200万的Kimi能否重塑AI应用开发？](https://www.xiaoyuzhoufm.com/episode/6602cb492d9eae5d0a2e6cc0) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6602cb492d9eae5d0a2e6cc0/media.xyzcdn.net/luCgiRLk72o-ekvmuD1WbxsZA2hO.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
