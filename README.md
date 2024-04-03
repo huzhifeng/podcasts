@@ -10,7 +10,7 @@
 - 2024/03/29 [E133 只要你想，每一天都是新年！永不失效的新年计划拯救方案来了](https://www.xiaoyuzhoufm.com/episode/660653df2d9eae5d0ac52e3d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/660653df2d9eae5d0ac52e3d/media.xyzcdn.net/lqV0jDunpyU9V1D1LJl54fiMwvgK.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/03/27 [No.94 金融大鳄索罗斯](https://www.ximalaya.com/sound/718171744) | [音频](https://dl.wavpub.com/item/227_31598423_6386.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/04/03 [No.95 WeWork：如何建造 470 亿的海市蜃楼](https://www.ximalaya.com/sound/720154923) | [音频](https://dl.wavpub.com/item/227_31598534_5572.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/03/27 [Vol.152 竞业协议，边界何在？](https://www.ximalaya.com/sound/717679056) | [音频](https://audio.xmcdn.com/storages/85e3-audiofreehighqps/40/36/GKwRIRwJ2EdIAMhLCgK9aIRF-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
