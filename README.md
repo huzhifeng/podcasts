@@ -19,7 +19,7 @@
 - 2024/02/11 [和老爹聊聊：读书如何影响了我们的命运（方言版）](https://www.xiaoyuzhoufm.com/episode/65c839a90bef6c2074d27174) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65c839a90bef6c2074d27174/media.xyzcdn.net/ljFv7ZFgmiyNZuNiYLWTh8I-KQ6F.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2024/04/01 [第106期 Rust语言要干掉谁](https://hosting.wavpub.cn/pie/ep106/) | [音频](https://tk.wavpub.com/WPDL_aKJmGEbuPTPVLczJEVUSUnUQYzGQJnvqMEnPSzwDhZTjQacrJvuECQhnBN-3d.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2024/04/06 [第107期 重构还是重写](https://hosting.wavpub.cn/pie/ep107/) | [音频](https://tk.wavpub.com/WPDL_WgtMjBwDUwWFnaEEByXBtJFmFzJXrDsVxEmyUnjwKqufXnQczTFgRvhdeQ-77.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2024/04/01 [EP54 飞书也裁了，会不会又多了一些“硬地骇客”？](https://www.xiaoyuzhoufm.com/episode/660ab0dd2d9eae5d0a6a167d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/660ab0dd2d9eae5d0a6a167d/media.xyzcdn.net/lmZmAUwTjI1s11ZP9m47l-Ok2wP9.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
