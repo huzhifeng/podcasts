@@ -22,5 +22,5 @@
 - 2024/04/06 [第107期 重构还是重写](https://hosting.wavpub.cn/pie/ep107/) | [音频](https://tk.wavpub.com/WPDL_WgtMjBwDUwWFnaEEByXBtJFmFzJXrDsVxEmyUnjwKqufXnQczTFgRvhdeQ-77.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/04/01 [EP54 飞书也裁了，会不会又多了一些“硬地骇客”？](https://www.xiaoyuzhoufm.com/episode/660ab0dd2d9eae5d0a6a167d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/660ab0dd2d9eae5d0a6a167d/media.xyzcdn.net/lmZmAUwTjI1s11ZP9m47l-Ok2wP9.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/04/08 [EP55 真正做好开源，根本不愁找工作 | 对话张晋涛](https://www.xiaoyuzhoufm.com/episode/66140dcf5dae7932c636fa29) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/66140dcf5dae7932c636fa29/media.xyzcdn.net/llk76oGFgBAB80TLBGk3ZSOtzunf.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
