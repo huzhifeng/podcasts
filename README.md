@@ -13,7 +13,7 @@
 - 2024/04/10 [No.96 波音崛起](https://www.ximalaya.com/sound/721768376) | [音频](https://dl.wavpub.com/item/227_31598619_1370.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/04/10 [Vol.154 卖不掉的奢侈品去哪了？](https://www.ximalaya.com/sound/721865634) | [音频](https://audio.xmcdn.com/storages/6d2c-audiofreehighqps/60/52/GKwRIJIJ7IHxAOF2iQLEkWyn-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/04/14 [商业小样01 | 不要在发布会上对比竞品](https://www.ximalaya.com/sound/722611010) | [音频](https://audio.xmcdn.com/storages/f967-audiofreehighqps/91/25/GKwRIJEJ8aA9ADziNgLGLqEl-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/02/11 [和老爹聊聊：读书如何影响了我们的命运（方言版）](https://www.xiaoyuzhoufm.com/episode/65c839a90bef6c2074d27174) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65c839a90bef6c2074d27174/media.xyzcdn.net/ljFv7ZFgmiyNZuNiYLWTh8I-KQ6F.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
