@@ -22,5 +22,5 @@
 - 2024/04/13 [第108期 新质生产力要更敢想](https://hosting.wavpub.cn/pie/ep108/) | [音频](https://tk.wavpub.com/WPDL_qArzYjhAPfScABejapqLCWqfMsUUVdkFpbasWvhWzSApwnKuQwnhBmqGLa-a4.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/04/08 [EP55 真正做好开源，根本不愁找工作 | 对话张晋涛](https://www.xiaoyuzhoufm.com/episode/66140dcf5dae7932c636fa29) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/66140dcf5dae7932c636fa29/media.xyzcdn.net/llk76oGFgBAB80TLBGk3ZSOtzunf.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/04/15 [EP56 沉浸式翻译背后的故事 | 对话创始人Owen](https://www.xiaoyuzhoufm.com/episode/661d2dc748c40e2fb07c6b99) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/661d2dc748c40e2fb07c6b99/media.xyzcdn.net/lqTNzM4tJg0tFj_nmRRIMTdXKFMv.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
