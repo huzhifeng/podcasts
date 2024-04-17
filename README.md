@@ -10,7 +10,7 @@
 - 2024/04/12 [E135 异乡人请回答：假如回到 10 年前，你还会来大城市漂吗？](https://www.xiaoyuzhoufm.com/episode/66189a6848c40e2fb0cc1e18) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66189a6848c40e2fb0cc1e18/media.xyzcdn.net/lqWuRXyCJoaMvTk9iNzSFUtKZtR8.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/04/10 [No.96 波音崛起](https://www.ximalaya.com/sound/721768376) | [音频](https://dl.wavpub.com/item/227_31598619_1370.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/04/17 [No.97 Theranos：硅谷「血」案与世纪骗局](https://www.ximalaya.com/sound/723197003) | [音频](https://dl.wavpub.com/item/227_31598745_7797.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/04/14 [商业小样01 | 不要在发布会上对比竞品](https://www.ximalaya.com/sound/722611010) | [音频](https://audio.xmcdn.com/storages/f967-audiofreehighqps/91/25/GKwRIJEJ8aA9ADziNgLGLqEl-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
