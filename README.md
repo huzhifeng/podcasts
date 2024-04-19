@@ -7,7 +7,7 @@
 - 2024/04/18 [EP42《如何阅读一本书》：阅读的四个层次，你在哪一层？](https://www.ximalaya.com/sound/723479352) | [音频](https://audio.xmcdn.com/storages/3b69-audiofreehighqps/3C/65/GKwRINsJ9uUNByqsIQLH8Evf.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/04/12 [E135 异乡人请回答：假如回到 10 年前，你还会来大城市漂吗？](https://www.xiaoyuzhoufm.com/episode/66189a6848c40e2fb0cc1e18) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66189a6848c40e2fb0cc1e18/media.xyzcdn.net/lqWuRXyCJoaMvTk9iNzSFUtKZtR8.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/04/19 [E136 要学多少才能做好投资，要明白多少道理才可以自洽地生活？](https://www.xiaoyuzhoufm.com/episode/6621d54648c40e2fb0486e57) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6621d54648c40e2fb0486e57/media.xyzcdn.net/lmd0g3Q2uAlihh3QTuOALh0nwhLe.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/04/17 [No.97 Theranos：硅谷「血」案与世纪骗局](https://www.ximalaya.com/sound/723197003) | [音频](https://dl.wavpub.com/item/227_31598745_7797.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
