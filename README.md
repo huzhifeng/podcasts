@@ -13,7 +13,7 @@
 - 2024/04/24 [No.98 波音崛起 2：巨翼之下](https://www.ximalaya.com/sound/724666055) | [音频](https://dl.wavpub.com/item/227_31598846_1451.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/04/17 [Vol.155 体育赛事到底能为城市带来多少收益？](https://www.ximalaya.com/sound/723258495) | [音频](https://audio.xmcdn.com/storages/b2ce-audiofreehighqps/9E/AE/GKwRIDoJ9ZlqANc2cALHhTFD-aacv2-48K.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/04/24 [Vol.156 改造市中心的老厂房，背后有哪些门道？](https://www.ximalaya.com/sound/724738138) | [音频](https://audio.xmcdn.com/storages/2c3a-audiofreehighqps/D0/D3/GKwRIRwJ_tLUAPuRYQLKk-_W.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/02/11 [和老爹聊聊：读书如何影响了我们的命运（方言版）](https://www.xiaoyuzhoufm.com/episode/65c839a90bef6c2074d27174) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65c839a90bef6c2074d27174/media.xyzcdn.net/ljFv7ZFgmiyNZuNiYLWTh8I-KQ6F.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
