@@ -13,7 +13,7 @@
 - 2024/05/08 [No.99 拍案惊奇：呈坎杨干院地产案](https://www.ximalaya.com/sound/727606691) | [音频](https://dl.wavpub.com/item/227_31599014_4177.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/04/28 [五一停更 & 关于商业小样的告知](https://www.ximalaya.com/sound/725658552) | [音频](https://audio.xmcdn.com/storages/4e7f-audiofreehighqps/20/E5/GKwRIaIKBDzxAATaigLMfjsf.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/05/08 [Vol.157 离经叛道的冰激凌](https://www.ximalaya.com/sound/727604423) | [音频](https://audio.xmcdn.com/storages/2812-audiofreehighqps/8A/E0/GKwRIUEKEV0bARy6ZgLQoLoU.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/02/11 [和老爹聊聊：读书如何影响了我们的命运（方言版）](https://www.xiaoyuzhoufm.com/episode/65c839a90bef6c2074d27174) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65c839a90bef6c2074d27174/media.xyzcdn.net/ljFv7ZFgmiyNZuNiYLWTh8I-KQ6F.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
