@@ -7,7 +7,7 @@
 - 2024/04/18 [EP42《如何阅读一本书》：阅读的四个层次，你在哪一层？](https://www.ximalaya.com/sound/723479352) | [音频](https://audio.xmcdn.com/storages/3b69-audiofreehighqps/3C/65/GKwRINsJ9uUNByqsIQLH8Evf.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/04/26 [E137 打工人的尽头是做自媒体？如果你听完这期还想做，那就去吧](https://www.xiaoyuzhoufm.com/episode/662a2834ff598d65f22fbc80) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/662a2834ff598d65f22fbc80/media.xyzcdn.net/lo1ovPUfTWTNhTzGGLnJpMuccaBV.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/05/10 [E138 对话温义飞：一个标准的中国人长什么样？弄懂这个问题，你就穷不了（苟富贵勿相忘](https://www.xiaoyuzhoufm.com/episode/663d827faf6f88d32f7d2cd8) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/663d827faf6f88d32f7d2cd8/media.xyzcdn.net/lpCBpa8_I4iyLTZnnzXL4-j0rpcx.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/05/08 [No.99 拍案惊奇：呈坎杨干院地产案](https://www.ximalaya.com/sound/727606691) | [音频](https://dl.wavpub.com/item/227_31599014_4177.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
