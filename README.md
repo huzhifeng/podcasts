@@ -19,7 +19,7 @@
 - 2024/02/11 [和老爹聊聊：读书如何影响了我们的命运（方言版）](https://www.xiaoyuzhoufm.com/episode/65c839a90bef6c2074d27174) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65c839a90bef6c2074d27174/media.xyzcdn.net/ljFv7ZFgmiyNZuNiYLWTh8I-KQ6F.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2024/05/07 [第111期 二次元与IP运营](https://hosting.wavpub.cn/pie/ep111/) | [音频](https://tk.wavpub.com/WPDL_ZCRvxCYrARAqKdvsKguSeKUdQkUEMeaEAhQKytLdcYhAyhWhKDVwHNSgwK-fd.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2024/05/11 [第112期 欧洲大战略与人生定律](https://hosting.wavpub.cn/pie/ep112/) | [音频](https://tk.wavpub.com/WPDL_HEXhZQsjuRewuRVyvGaMhRmvtssqKVxpSeEXNnzecaeUuHhrrvTdtGuSqb-ec.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2024/05/06 [EP58 表单SaaS HeyForm 的开源增长策略 | 对话创始人百顺](https://www.xiaoyuzhoufm.com/episode/6638d37248dbc98b8964726f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6638d37248dbc98b8964726f/media.xyzcdn.net/lktYyP6IC5R20jcjw5sPKM4VgQfx.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
