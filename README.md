@@ -1,7 +1,7 @@
 # 播客
 
 ## 无人知晓
-- 2024/03/12 [E34 孟岩对话顾中一：你和 100 岁的你，共享同一个自己](https://www.xiaoyuzhoufm.com/episode/65effcb5421188fe6adc9f41) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/65effcb5421188fe6adc9f41/media.xyzcdn.net/lmrDHW9ykqTLnzJhhyFDBFdUQ27Z.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
+- 2024/05/14 [E35 知识的缝隙](https://www.xiaoyuzhoufm.com/episode/664300e4251bd96e6c2e57a6) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/664300e4251bd96e6c2e57a6/media.xyzcdn.net/lh9O4fFXBeTFewumXHcn1_3gvaWG.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
 
 ## 纵横四海
 - 2024/04/18 [EP42《如何阅读一本书》：阅读的四个层次，你在哪一层？](https://www.ximalaya.com/sound/723479352) | [音频](https://audio.xmcdn.com/storages/3b69-audiofreehighqps/3C/65/GKwRINsJ9uUNByqsIQLH8Evf.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
@@ -22,5 +22,5 @@
 - 2024/05/11 [第112期 欧洲大战略与人生定律](https://hosting.wavpub.cn/pie/ep112/) | [音频](https://tk.wavpub.com/WPDL_HEXhZQsjuRewuRVyvGaMhRmvtssqKVxpSeEXNnzecaeUuHhrrvTdtGuSqb-ec.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/05/06 [EP58 表单SaaS HeyForm 的开源增长策略 | 对话创始人百顺](https://www.xiaoyuzhoufm.com/episode/6638d37248dbc98b8964726f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6638d37248dbc98b8964726f/media.xyzcdn.net/lktYyP6IC5R20jcjw5sPKM4VgQfx.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/05/13 [EP59 对话新世相&躺岛联创 Koji：好奇心驱动的跨界产品人](https://www.xiaoyuzhoufm.com/episode/66421687f968fce2cbce98b1) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/66421687f968fce2cbce98b1/media.xyzcdn.net/ltHwZufqyNxZxKDywN1JTEn7sXaU.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
