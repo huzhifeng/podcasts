@@ -13,7 +13,7 @@
 - 2024/05/15 [No.100 ☕️百期特刊：金融骗局与饮料故事·海外版](https://www.ximalaya.com/sound/728695958) | [音频](https://dl.wavpub.com/item/227_31599089_3721.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/05/12 [商业小样02 | 跨境电商赖以生存的“漏洞”](https://www.ximalaya.com/sound/728438547) | [音频](https://audio.xmcdn.com/storages/7aa2-audiofreehighqps/BE/A0/GKwRIasKFry4ADCQAwLScw6g.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/05/15 [Vol.158 如何管理一艘“移动的工厂”](https://www.ximalaya.com/sound/729019661) | [音频](https://audio.xmcdn.com/storages/cb92-audiofreehighqps/02/BB/GKwRIJEKGpk7ANB3jQLT0eN_.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/02/11 [和老爹聊聊：读书如何影响了我们的命运（方言版）](https://www.xiaoyuzhoufm.com/episode/65c839a90bef6c2074d27174) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65c839a90bef6c2074d27174/media.xyzcdn.net/ljFv7ZFgmiyNZuNiYLWTh8I-KQ6F.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
