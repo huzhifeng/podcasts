@@ -16,7 +16,7 @@
 - 2024/05/15 [Vol.158 如何管理一艘“移动的工厂”](https://www.ximalaya.com/sound/729019661) | [音频](https://audio.xmcdn.com/storages/cb92-audiofreehighqps/02/BB/GKwRIJEKGpk7ANB3jQLT0eN_.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
-- 2024/02/11 [和老爹聊聊：读书如何影响了我们的命运（方言版）](https://www.xiaoyuzhoufm.com/episode/65c839a90bef6c2074d27174) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/65c839a90bef6c2074d27174/media.xyzcdn.net/ljFv7ZFgmiyNZuNiYLWTh8I-KQ6F.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
+- 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
 - 2024/05/18 [第113期 论科学的质疑](https://hosting.wavpub.cn/pie/ep113/) | [音频](https://tk.wavpub.com/WPDL_UFgertXFEDgkNgHxKNVDfrCsRNSMzfbmwrLfLparnpsASKrEtJntehGwPF-30.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
