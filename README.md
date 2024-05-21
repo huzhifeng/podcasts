@@ -22,5 +22,5 @@
 - 2024/05/18 [第113期 论科学的质疑](https://hosting.wavpub.cn/pie/ep113/) | [音频](https://tk.wavpub.com/WPDL_UFgertXFEDgkNgHxKNVDfrCsRNSMzfbmwrLfLparnpsASKrEtJntehGwPF-30.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/05/13 [EP59 对话新世相&躺岛联创 Koji：好奇心驱动的跨界产品人](https://www.xiaoyuzhoufm.com/episode/66421687f968fce2cbce98b1) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/66421687f968fce2cbce98b1/media.xyzcdn.net/ltHwZufqyNxZxKDywN1JTEn7sXaU.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/05/20 [EP60 对话 Minimax 的 AI PM 橘子：聊聊 AI 行业的最新认知](https://www.xiaoyuzhoufm.com/episode/664b329c251bd96e6c90e3f2) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/664b329c251bd96e6c90e3f2/media.xyzcdn.net/luZyjru8ob68AKhWvUmifrhfWSIK.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
