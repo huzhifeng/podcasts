@@ -10,7 +10,7 @@
 - 2024/05/17 [E139 关于养老，我们为你准备了一份最小知识合集（全年龄可用](https://www.xiaoyuzhoufm.com/episode/664709a982b428eafd3d2982) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/664709a982b428eafd3d2982/media.xyzcdn.net/ltcW-ko9YpoEeU8AbLNztkiPwFYX.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/05/15 [No.100 ☕️百期特刊：金融骗局与饮料故事·海外版](https://www.ximalaya.com/sound/728695958) | [音频](https://dl.wavpub.com/item/227_31599089_3721.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/05/22 [No.101 空客与波音](https://www.ximalaya.com/sound/730345221) | [音频](https://dl.wavpub.com/item/227_31599171_2033.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/05/15 [Vol.158 如何管理一艘“移动的工厂”](https://www.ximalaya.com/sound/729019661) | [音频](https://audio.xmcdn.com/storages/cb92-audiofreehighqps/02/BB/GKwRIJEKGpk7ANB3jQLT0eN_.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
