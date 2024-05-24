@@ -7,7 +7,7 @@
 - 2024/05/20 [EP43《驱动力》：为什么随着年岁增长，我们越来越麻木了](https://www.ximalaya.com/sound/729875502) | [音频](https://audio.xmcdn.com/storages/1468-audiofreehighqps/57/D5/GKwRINsKILkNBmzH4wLVsCxk.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/05/17 [E139 关于养老，我们为你准备了一份最小知识合集（全年龄可用](https://www.xiaoyuzhoufm.com/episode/664709a982b428eafd3d2982) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/664709a982b428eafd3d2982/media.xyzcdn.net/ltcW-ko9YpoEeU8AbLNztkiPwFYX.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/05/24 [E140 省钱让你自由，还是让你悄悄焦虑？](https://www.xiaoyuzhoufm.com/episode/665020024efbc0c3dcba8fb3) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/665020024efbc0c3dcba8fb3/media.xyzcdn.net/lrIxg792I7cblrwQYUmMUVi1ff9I.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/05/22 [No.101 空客与波音](https://www.ximalaya.com/sound/730345221) | [音频](https://dl.wavpub.com/item/227_31599171_2033.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
