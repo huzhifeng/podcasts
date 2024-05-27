@@ -13,7 +13,7 @@
 - 2024/05/22 [No.101 空客与波音](https://www.ximalaya.com/sound/730345221) | [音频](https://dl.wavpub.com/item/227_31599171_2033.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/05/22 [Vol.159 平替当道，能让1688飞升吗？](https://www.ximalaya.com/sound/730360467) | [音频](https://audio.xmcdn.com/storages/7e28-audiofreehighqps/55/8D/GKwRIJIKI7TNAODKuQLWvu7r.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/05/26 [番外 | 2024年，播客能赚钱了吗？](https://www.ximalaya.com/sound/731043819) | [音频](https://audio.xmcdn.com/storages/69fd-audiofreehighqps/2D/89/GKwRIJIKKFqBAXYhbgLYaQcQ.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
