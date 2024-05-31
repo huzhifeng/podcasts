@@ -7,7 +7,7 @@
 - 2024/05/20 [EP43《驱动力》：为什么随着年岁增长，我们越来越麻木了](https://www.ximalaya.com/sound/729875502) | [音频](https://audio.xmcdn.com/storages/1468-audiofreehighqps/57/D5/GKwRINsKILkNBmzH4wLVsCxk.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/05/24 [E140 省钱让你自由，还是让你悄悄焦虑？](https://www.xiaoyuzhoufm.com/episode/665020024efbc0c3dcba8fb3) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/665020024efbc0c3dcba8fb3/media.xyzcdn.net/lrIxg792I7cblrwQYUmMUVi1ff9I.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/05/31 [E141 做自己的小孩，让那个疲惫、爱付出的自己歇会儿吧（儿童节快乐！](https://www.xiaoyuzhoufm.com/episode/66597d9194977a26ef39080d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66597d9194977a26ef39080d/media.xyzcdn.net/liJvOgeWOvVd36aoMuFIF1kp8cDA.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/05/29 [No.102 ️ 逝者｜心理学革命者：丹尼尔·卡尼曼](https://www.ximalaya.com/sound/731776592) | [音频](https://dl.wavpub.com/item/227_31599263_8379.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
