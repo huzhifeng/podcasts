@@ -19,7 +19,7 @@
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2024/05/25 [第114期 内容产业不等于广告产业](https://hosting.wavpub.cn/pie/ep114/) | [音频](https://tk.wavpub.com/WPDL_SQLkGPvETZZHTwkTbYZSHZhFTvRgMSvcZVkJGELzfxcLXgykRjMmTLacAd-18.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2024/06/01 [第115期 认真做事不辩经](https://hosting.wavpub.cn/pie/ep115/) | [音频](https://tk.wavpub.com/WPDL_qfuCsjzmrBgjhLNknTNebtuAThPyDBDMGuuCxrGYsqDkfbGnyxzXXhwPzx-9b.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2024/05/28 [EP61 国产大模型的降价竞赛：是不是卷王之争？](https://www.xiaoyuzhoufm.com/episode/6655c43f06bc73decbff744b) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6655c43f06bc73decbff744b/media.xyzcdn.net/luuxF88Qni4G9kNbI4Agt0h_o2Ps.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
