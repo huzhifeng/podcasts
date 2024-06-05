@@ -10,7 +10,7 @@
 - 2024/05/31 [E141 做自己的小孩，让那个疲惫、爱付出的自己歇会儿吧（儿童节快乐！](https://www.xiaoyuzhoufm.com/episode/66597d9194977a26ef39080d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66597d9194977a26ef39080d/media.xyzcdn.net/liJvOgeWOvVd36aoMuFIF1kp8cDA.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/05/29 [No.102 ️ 逝者｜心理学革命者：丹尼尔·卡尼曼](https://www.ximalaya.com/sound/731776592) | [音频](https://dl.wavpub.com/item/227_31599263_8379.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/06/05 [No.103 他把埃菲尔铁塔当废铁卖了，两回 feat.小伙子](https://www.ximalaya.com/sound/733056664) | [音频](https://dl.wavpub.com/item/227_31599363_7122.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/06/03 [城市就是这样01 | 城市排名，为什么让人这么在意？](https://www.ximalaya.com/sound/732661084) | [音频](https://audio.xmcdn.com/storages/5235-audiofreehighqps/9C/B2/GKwRIJIKMxFfAJYCvQLcesn6.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
