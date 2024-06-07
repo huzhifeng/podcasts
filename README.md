@@ -7,7 +7,7 @@
 - 2024/06/06 [EP44《坚毅》：跟它比，天赋有个啥用](https://www.ximalaya.com/sound/733272262) | [音频](https://audio.xmcdn.com/storages/9e8c-audiofreehighqps/08/B9/GKwRIasKNvxtB1NmBALd5E1L.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/05/31 [E141 做自己的小孩，让那个疲惫、爱付出的自己歇会儿吧（儿童节快乐！](https://www.xiaoyuzhoufm.com/episode/66597d9194977a26ef39080d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66597d9194977a26ef39080d/media.xyzcdn.net/liJvOgeWOvVd36aoMuFIF1kp8cDA.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/06/07 [2024，买房卖房更难了？变化很多，但你最需要关注的事实没变！](https://www.xiaoyuzhoufm.com/episode/66628ee994977a26efceffd9) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66628ee994977a26efceffd9/media.xyzcdn.net/lpjR6re1egSnq-dNgv7cur5Lc9by.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/06/05 [No.103 他把埃菲尔铁塔当废铁卖了，两回 feat.小伙子](https://www.ximalaya.com/sound/733056664) | [音频](https://dl.wavpub.com/item/227_31599363_7122.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
