@@ -13,7 +13,7 @@
 - 2024/06/05 [No.103 他把埃菲尔铁塔当废铁卖了，两回 feat.小伙子](https://www.ximalaya.com/sound/733056664) | [音频](https://dl.wavpub.com/item/227_31599363_7122.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/06/05 [Vol.161 元宇宙虚火？在工业界它是真火](https://www.ximalaya.com/sound/733139878) | [音频](https://audio.xmcdn.com/storages/999e-audiofreehighqps/05/A2/GKwRINsKNhDqARp2XALdmZ1N.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/06/12 [Vol.162 小历史 | 1989，雷克萨斯诞生](https://www.ximalaya.com/sound/734546676) | [音频](https://audio.xmcdn.com/storages/a7fb-audiofreehighqps/D0/F5/GKwRIasKP4CEAR1QLQLgyZQz.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
