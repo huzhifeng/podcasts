@@ -7,10 +7,10 @@
 - 2024/06/06 [EP44《坚毅》：跟它比，天赋有个啥用](https://www.ximalaya.com/sound/733272262) | [音频](https://audio.xmcdn.com/storages/9e8c-audiofreehighqps/08/B9/GKwRIasKNvxtB1NmBALd5E1L.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/06/07 [2024，买房卖房更难了？变化很多，但你最需要关注的事实没变！](https://www.xiaoyuzhoufm.com/episode/66628ee994977a26efceffd9) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66628ee994977a26efceffd9/media.xyzcdn.net/lpjR6re1egSnq-dNgv7cur5Lc9by.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/06/14 [对话薄世宁医生：见证20年生死离别后，我发现爱比「不可治愈」更长久](https://www.xiaoyuzhoufm.com/episode/666b7a2dc26e396a36a19c20) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/666b7a2dc26e396a36a19c20/media.xyzcdn.net/lmIXqg1X3dpc5B5Puhsuvp3PYaOE.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/06/05 [No.103 他把埃菲尔铁塔当废铁卖了，两回 feat.小伙子](https://www.ximalaya.com/sound/733056664) | [音频](https://dl.wavpub.com/item/227_31599363_7122.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/06/14 [No.104 ️ 逝者｜ 量化投资大师与数学大师：詹姆斯·西蒙斯](https://www.ximalaya.com/sound/734795686) | [音频](https://dl.wavpub.com/item/227_31599469_9827.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/06/12 [Vol.162 小历史 | 1989，雷克萨斯诞生](https://www.ximalaya.com/sound/734546676) | [音频](https://audio.xmcdn.com/storages/a7fb-audiofreehighqps/D0/F5/GKwRIasKP4CEAR1QLQLgyZQz.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
