@@ -7,7 +7,7 @@
 - 2024/06/06 [EP44《坚毅》：跟它比，天赋有个啥用](https://www.ximalaya.com/sound/733272262) | [音频](https://audio.xmcdn.com/storages/9e8c-audiofreehighqps/08/B9/GKwRIasKNvxtB1NmBALd5E1L.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/06/14 [对话薄世宁医生：见证20年生死离别后，我发现爱比「不可治愈」更长久](https://www.xiaoyuzhoufm.com/episode/666b7a2dc26e396a36a19c20) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/666b7a2dc26e396a36a19c20/media.xyzcdn.net/lmIXqg1X3dpc5B5Puhsuvp3PYaOE.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/06/21 [不做满分投资者，只做合格持有人！为了让你放下理财焦虑，我们设计了一场无需取得满分的考试](https://www.xiaoyuzhoufm.com/episode/66751d3dc26e396a3658f92f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66751d3dc26e396a3658f92f/media.xyzcdn.net/lu76t2RZoLiGm1DNVeySenuJniPn.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/06/19 [No.105 失败者之光｜一生从未赢过的赛马：春乌拉拉](https://www.ximalaya.com/sound/735107392) | [音频](https://dl.wavpub.com/item/227_31599522_0037.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
