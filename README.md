@@ -10,7 +10,7 @@
 - 2024/06/21 [不做满分投资者，只做合格持有人！为了让你放下理财焦虑，我们设计了一场无需取得满分的考试](https://www.xiaoyuzhoufm.com/episode/66751d3dc26e396a3658f92f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66751d3dc26e396a3658f92f/media.xyzcdn.net/lu76t2RZoLiGm1DNVeySenuJniPn.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/06/19 [No.105 失败者之光｜一生从未赢过的赛马：春乌拉拉](https://www.ximalaya.com/sound/735107392) | [音频](https://dl.wavpub.com/item/227_31599522_0037.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/06/26 [No.106 日漫史 1｜创世时代：街头艺术、漫画之神，与机器人原子](https://www.ximalaya.com/sound/737413538) | [音频](https://dl.wavpub.com/item/227_31599685_2812.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/06/24 [城市就是这样02 | 那些没进新一线的城市](https://www.ximalaya.com/sound/736970783) | [音频](https://audio.xmcdn.com/storages/4ee8-audiofreehighqps/4D/31/GKwRIDoKTxt9AIUODgLmnV0z.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
