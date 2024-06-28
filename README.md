@@ -4,10 +4,10 @@
 - 2024/06/11 [E36 孟岩对话周奇墨：在高处做空自己](https://www.xiaoyuzhoufm.com/episode/6667f31dc26e396a36eefe25) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/6667f31dc26e396a36eefe25/media.xyzcdn.net/ljJYPINg_uUnMMt8WMuIsiU41BZt.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
 
 ## 纵横四海
-- 2024/06/06 [EP44《坚毅》：跟它比，天赋有个啥用](https://www.ximalaya.com/sound/733272262) | [音频](https://audio.xmcdn.com/storages/9e8c-audiofreehighqps/08/B9/GKwRIasKNvxtB1NmBALd5E1L.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
+- 2024/06/28 [EP45《影响力》：进来被我硬控30秒](https://www.ximalaya.com/sound/737611452) | [音频](https://audio.xmcdn.com/storages/7a6e-audiofreehighqps/7E/3D/GKwRINsKUwwBBN6xYQLoLnNU.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/06/21 [不做满分投资者，只做合格持有人！为了让你放下理财焦虑，我们设计了一场无需取得满分的考试](https://www.xiaoyuzhoufm.com/episode/66751d3dc26e396a3658f92f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66751d3dc26e396a3658f92f/media.xyzcdn.net/lu76t2RZoLiGm1DNVeySenuJniPn.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/06/28 [哲学不提供终极答案，但这件利器能帮你走稳良好生活的第 0 步](https://www.xiaoyuzhoufm.com/episode/667e33a73a6b0a1f45171232) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/667e33a73a6b0a1f45171232/media.xyzcdn.net/lkddPd4KrJTPsZKvYCpFWIDugnYe.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/06/26 [No.106 日漫史 1｜创世时代：街头艺术、漫画之神，与机器人原子](https://www.ximalaya.com/sound/737413538) | [音频](https://dl.wavpub.com/item/227_31599685_2812.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
