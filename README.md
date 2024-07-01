@@ -13,7 +13,7 @@
 - 2024/06/26 [No.106 日漫史 1｜创世时代：街头艺术、漫画之神，与机器人原子](https://www.ximalaya.com/sound/737413538) | [音频](https://dl.wavpub.com/item/227_31599685_2812.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/06/26 [Vol.164 欧盟对中国电动车的反补贴调查，到底是怎么回事？](https://www.ximalaya.com/sound/737409890) | [音频](https://audio.xmcdn.com/storages/bf0b-audiofreehighqps/68/4E/GKwRIDoKUcQLAKt_DALntMUc.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/06/30 [商业小样03 | 麦当劳竟然也有主厨？](https://www.ximalaya.com/sound/738238234) | [音频](https://audio.xmcdn.com/storages/59bb-audiofreehighqps/64/45/GKwRIRwKVzbxAD94GwLpxDww.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
