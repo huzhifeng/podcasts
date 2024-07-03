@@ -10,7 +10,7 @@
 - 2024/06/28 [哲学不提供终极答案，但这件利器能帮你走稳良好生活的第 0 步](https://www.xiaoyuzhoufm.com/episode/667e33a73a6b0a1f45171232) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/667e33a73a6b0a1f45171232/media.xyzcdn.net/lkddPd4KrJTPsZKvYCpFWIDugnYe.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/06/26 [No.106 日漫史 1｜创世时代：街头艺术、漫画之神，与机器人原子](https://www.ximalaya.com/sound/737413538) | [音频](https://dl.wavpub.com/item/227_31599685_2812.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/07/03 [No.107 跨界狂魔雅马哈](https://www.ximalaya.com/sound/738800126) | [音频](https://dl.wavpub.com/item/227_31599767_7001.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/06/30 [商业小样03 | 麦当劳竟然也有主厨？](https://www.ximalaya.com/sound/738238234) | [音频](https://audio.xmcdn.com/storages/59bb-audiofreehighqps/64/45/GKwRIRwKVzbxAD94GwLpxDww.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
