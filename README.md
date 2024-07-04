@@ -13,7 +13,7 @@
 - 2024/07/03 [No.107 跨界狂魔雅马哈](https://www.ximalaya.com/sound/738800126) | [音频](https://dl.wavpub.com/item/227_31599767_7001.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/06/30 [商业小样03 | 麦当劳竟然也有主厨？](https://www.ximalaya.com/sound/738238234) | [音频](https://audio.xmcdn.com/storages/59bb-audiofreehighqps/64/45/GKwRIRwKVzbxAD94GwLpxDww.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/07/03 [Vol.165 各种“上市”到底有什么区别](https://www.ximalaya.com/sound/738862833) | [音频](https://audio.xmcdn.com/storages/e11d-audiofreehighqps/B7/79/GKwRINsKWxzFAK4yDQLrU6yp.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
