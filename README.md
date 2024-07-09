@@ -22,5 +22,5 @@
 - 2024/07/06 [第120期 在线教育平台的难](https://hosting.wavpub.cn/pie/ep120/) | [音频](https://tk.wavpub.com/WPDL_NbqtJBrCSdshuFSnSvpqjjBhXKWGBRNacyjMVhVypVhuKQGTtpkbqekzRy-00.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/07/01 [EP66 产品出海赚钱第一关： “支付” 的那些事](https://www.xiaoyuzhoufm.com/episode/6682a002077b88831b7eee4f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6682a002077b88831b7eee4f/media.xyzcdn.net/lgxs7PS9L8y6nFZWdSbZw4yKWKC5.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/07/08 [EP67 AI搜索揭秘：套壳之王Perplexity究竟有多难？独立开发是否有机会?](https://www.xiaoyuzhoufm.com/episode/668be4c2ae8e21859a657b8a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/668be4c2ae8e21859a657b8a/media.xyzcdn.net/lpqr8sgvRSD74m6QJWTDvb9svqaf.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
