@@ -10,7 +10,7 @@
 - 2024/07/05 [对话付鹏：普通人如何有效捕捉属于自己的机会，让自己不用卷生卷死也能赚到钱？](https://www.xiaoyuzhoufm.com/episode/66878ecf0bc5d7cc700115d0) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66878ecf0bc5d7cc700115d0/media.xyzcdn.net/lvM9dm4Ngq5sxqr8ICABUKglcBEV.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/07/03 [No.107 跨界狂魔雅马哈](https://www.ximalaya.com/sound/738800126) | [音频](https://dl.wavpub.com/item/227_31599767_7001.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/07/10 [No.108 米其林百年创新史：道路、美食以及更多](https://www.ximalaya.com/sound/740153148) | [音频](https://dl.wavpub.com/item/227_31599842_4804.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/07/07 [城市就是这样03 | 北方城市真的“没落”了吗？](https://www.ximalaya.com/sound/739781762) | [音频](https://audio.xmcdn.com/storages/99b9-audiofreehighqps/A7/7C/GKwRINsKYN8ZAIq-AgLtdpxN.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
