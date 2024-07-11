@@ -13,7 +13,7 @@
 - 2024/07/10 [No.108 米其林百年创新史：道路、美食以及更多](https://www.ximalaya.com/sound/740153148) | [音频](https://dl.wavpub.com/item/227_31599842_4804.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/07/07 [城市就是这样03 | 北方城市真的“没落”了吗？](https://www.ximalaya.com/sound/739781762) | [音频](https://audio.xmcdn.com/storages/99b9-audiofreehighqps/A7/7C/GKwRINsKYN8ZAIq-AgLtdpxN.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/07/10 [Vol.166 NCAA：嘴上说着“业余”，心里全是生意](https://www.ximalaya.com/sound/740491770) | [音频](https://audio.xmcdn.com/storages/fa45-audiofreehighqps/C5/DB/GKwRIJEKZI-WANPZ-wLvG0yw.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
