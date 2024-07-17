@@ -10,7 +10,7 @@
 - 2024/07/12 [我真希望！毕业时有人告诉我这些事我完全可以做到](https://www.xiaoyuzhoufm.com/episode/6690999e37236c546e922456) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6690999e37236c546e922456/media.xyzcdn.net/lt3GUAxcc7gR8DzglaXDLAuS5RwA.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/07/10 [No.108 米其林百年创新史：道路、美食以及更多](https://www.ximalaya.com/sound/740153148) | [音频](https://dl.wavpub.com/item/227_31599842_4804.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/07/17 [No.109 高考1977](https://www.ximalaya.com/sound/741525431) | [音频](https://dl.wavpub.com/item/227_31599915_8538.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/07/10 [Vol.166 NCAA：嘴上说着“业余”，心里全是生意](https://www.ximalaya.com/sound/740491770) | [音频](https://audio.xmcdn.com/storages/fa45-audiofreehighqps/C5/DB/GKwRIJEKZI-WANPZ-wLvG0yw.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
