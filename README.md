@@ -7,7 +7,7 @@
 - 2024/06/28 [EP45《影响力》：进来被我硬控30秒](https://www.ximalaya.com/sound/737611452) | [音频](https://audio.xmcdn.com/storages/7a6e-audiofreehighqps/7E/3D/GKwRINsKUwwBBN6xYQLoLnNU.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/07/12 [我真希望！毕业时有人告诉我这些事我完全可以做到](https://www.xiaoyuzhoufm.com/episode/6690999e37236c546e922456) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6690999e37236c546e922456/media.xyzcdn.net/lt3GUAxcc7gR8DzglaXDLAuS5RwA.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/07/19 [对话培风客：历史不存在高光时刻，任何时候你都可以选择自己的使命](https://www.xiaoyuzhoufm.com/episode/6699fb6337236c546e3e9af9) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6699fb6337236c546e3e9af9/media.xyzcdn.net/lo6U_p6dHHFUy_pypACKTrjj0Mo3.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/07/17 [No.109 高考1977](https://www.ximalaya.com/sound/741525431) | [音频](https://dl.wavpub.com/item/227_31599915_8538.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
