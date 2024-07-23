@@ -22,5 +22,5 @@
 - 2024/07/21 [第122期 地平线上的懂王朝](https://hosting.wavpub.cn/pie/ep122/) | [音频](https://tk.wavpub.com/WPDL_YTSXMQdSHuwVKMWdCFsrfecyzwHTmVNpVaUagwkAJjFCBKJcrBekMBAszn-9c.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/07/15 [EP68 对话秋风：独立开发者如何打造出百万用户级AI产品？](https://www.xiaoyuzhoufm.com/episode/66950a8d37236c546e4d9943) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/66950a8d37236c546e4d9943/media.xyzcdn.net/luSqRLPL9iCtsII-bhnfueCs5_8Q.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/07/22 [EP69 从油管、摆摊到AI产品，看斜杠青年如何搞钱 |对话楚豪灵芝](https://www.xiaoyuzhoufm.com/episode/669e659237236c546ef416c5) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/669e659237236c546ef416c5/media.xyzcdn.net/llPMgV6eWveBYQFbjB8_hwxujEnf.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
