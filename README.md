@@ -7,7 +7,7 @@
 - 2024/07/22 [EP46 晚年特辑：不要温和地走入那个良夜](https://www.ximalaya.com/sound/743016477) | [音频](https://audio.xmcdn.com/storages/1da1-audiofreehighqps/66/46/GKwRIMAKc7cBBgNOqAL0lyx-.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/07/19 [对话培风客：历史不存在高光时刻，任何时候你都可以选择自己的使命](https://www.xiaoyuzhoufm.com/episode/6699fb6337236c546e3e9af9) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6699fb6337236c546e3e9af9/media.xyzcdn.net/lo6U_p6dHHFUy_pypACKTrjj0Mo3.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/07/26 [失业了，如何为自己兜底？先把这笔钱领了再说](https://www.xiaoyuzhoufm.com/episode/66a31b1b33ddcbb53c2fdafc) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66a31b1b33ddcbb53c2fdafc/media.xyzcdn.net/lmGZiVsgFMGkY7GunQxGGF2_qGHn.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/07/24 [No.110 日漫史 2｜田园时代：诞生了哆啦 A 梦的常盘庄](https://www.ximalaya.com/sound/743266948) | [音频](https://dl.wavpub.com/item/227_31599985_2325.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
