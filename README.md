@@ -10,7 +10,7 @@
 - 2024/07/26 [失业了，如何为自己兜底？先把这笔钱领了再说](https://www.xiaoyuzhoufm.com/episode/66a31b1b33ddcbb53c2fdafc) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66a31b1b33ddcbb53c2fdafc/media.xyzcdn.net/lmGZiVsgFMGkY7GunQxGGF2_qGHn.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/07/24 [No.110 日漫史 2｜田园时代：诞生了哆啦 A 梦的常盘庄](https://www.ximalaya.com/sound/743266948) | [音频](https://dl.wavpub.com/item/227_31599985_2325.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/07/31 [No.111 深圳前传](https://www.ximalaya.com/sound/744645854) | [音频](https://dl.wavpub.com/item/227_31600077_0848.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/07/24 [Vol.168 透视恒隆](https://www.ximalaya.com/sound/743600967) | [音频](https://audio.xmcdn.com/storages/4ef9-audiofreehighqps/5E/94/GKwRIW4KeCicATD-9AL2VPQk.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
