@@ -10,7 +10,7 @@
 - 2024/08/02 [瑞·达利欧的A面与B面](https://www.xiaoyuzhoufm.com/episode/66ac3ee97349f7a55732e673) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66ac3ee97349f7a55732e673/media.xyzcdn.net/lpuTfAROhIYbwSz00RBmvWumcKG7.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/07/31 [No.111 深圳前传](https://www.ximalaya.com/sound/744645854) | [音频](https://dl.wavpub.com/item/227_31600077_0848.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/08/07 [No.112 日漫史 3｜周刊时代：少年 Jump 的诞生与颠覆](https://www.ximalaya.com/sound/746791356) | [音频](https://dl.wavpub.com/item/227_31600160_6829.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/08/04 [城市就是这样 04 | 成都为什么老是排名新一线第一？](https://www.ximalaya.com/sound/746189204) | [音频](https://audio.xmcdn.com/storages/f3ce-audiofreehighqps/09/0B/GKwRIasKhWrHALRUCQL7LtFC.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
