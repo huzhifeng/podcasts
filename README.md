@@ -13,7 +13,7 @@
 - 2024/08/07 [No.112 日漫史 3｜周刊时代：少年 Jump 的诞生与颠覆](https://www.ximalaya.com/sound/746791356) | [音频](https://dl.wavpub.com/item/227_31600160_6829.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/08/04 [城市就是这样 04 | 成都为什么老是排名新一线第一？](https://www.ximalaya.com/sound/746189204) | [音频](https://audio.xmcdn.com/storages/f3ce-audiofreehighqps/09/0B/GKwRIasKhWrHALRUCQL7LtFC.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/08/07 [Vol.170 润滑油，一个关于极限的故事](https://www.ximalaya.com/sound/746900683) | [音频](https://audio.xmcdn.com/storages/3013-audiofreehighqps/2F/0B/GKwRIDoKiUG5ANuqDgL8pYlm.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
