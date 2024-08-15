@@ -10,10 +10,10 @@
 - 2024/08/09 [E151 工伤险，希望你用不上，但听完这期遇上了也不慌！](https://www.xiaoyuzhoufm.com/episode/66b57b6b33591c27bec8c40b) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66b57b6b33591c27bec8c40b/media.xyzcdn.net/lo71TfN__DCCTGlQgoL2i0XsUyPu.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/08/14 [No.113 “蛇口之父”袁庚](https://www.ximalaya.com/sound/748520356) | [音频](https://dl.wavpub.com/item/227_31600234_0384.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/08/15 [番外 05：串台三五环｜坦桑尼亚旅行报告](https://www.ximalaya.com/sound/748633683) | [音频](https://dl.wavpub.com/item/227_31602823_6492.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/08/11 [商业小样05 | 我不是奥运赞助商，怎么办？](https://www.ximalaya.com/sound/747881608) | [音频](https://aod.cos.tx.xmcdn.com/storages/739e-audiofreehighqps/69/18/GKwRIW4Kjp3QAE8PZwL-lBSD.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/08/14 [Vol.171 昂跑会是下一个lululemon吗？](https://www.ximalaya.com/sound/748707723) | [音频](https://aod.cos.tx.xmcdn.com/storages/ae1f-audiofreehighqps/0D/EE/GKwRIasKkqGgAM9UZwMAJSyq.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
