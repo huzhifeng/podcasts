@@ -7,7 +7,7 @@
 - 2024/07/22 [EP46 晚年特辑：不要温和地走入那个良夜](https://www.ximalaya.com/sound/743016477) | [音频](https://audio.xmcdn.com/storages/1da1-audiofreehighqps/66/46/GKwRIMAKc7cBBgNOqAL0lyx-.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/08/09 [E151 工伤险，希望你用不上，但听完这期遇上了也不慌！](https://www.xiaoyuzhoufm.com/episode/66b57b6b33591c27bec8c40b) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66b57b6b33591c27bec8c40b/media.xyzcdn.net/lo71TfN__DCCTGlQgoL2i0XsUyPu.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/08/16 [E152 陈鹏博士：搞懂这个公式再去理财，能避开 99% 的坑](https://www.xiaoyuzhoufm.com/episode/66bec2f8db5e6d6bf9ad7d28) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66bec2f8db5e6d6bf9ad7d28/media.xyzcdn.net/lmj8ZGmomlBfuACqptib5gOcDQ0k.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/08/15 [番外 05：串台三五环｜坦桑尼亚旅行报告](https://www.ximalaya.com/sound/748633683) | [音频](https://dl.wavpub.com/item/227_31602823_6492.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
