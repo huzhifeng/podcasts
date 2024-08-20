@@ -22,5 +22,5 @@
 - 2024/08/17 [第126期 电子“监工”](https://hosting.wavpub.cn/pie/ep126/) | [音频](https://tk.wavpub.com/WPDL_pffmMRCqpqREGMxwBKKRvSmrKKDGPBBXbDVGpAEKasxndRGdBzUajtXgMM-00.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/08/12 [EP72 Cursor 掀起 AI coding革命？AI 代码助手又将如何改变编程？](https://www.xiaoyuzhoufm.com/episode/66ba10d933591c27be8c2f8a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/66ba10d933591c27be8c2f8a/media.xyzcdn.net/libHq8P06aS1dU7MaWYJMfpuh8Vo.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/08/19 [EP73 游戏科学：如何以匠心精神塑造黑神话悟空？](https://www.xiaoyuzhoufm.com/episode/66c337e533591c27be384f66) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/66c337e533591c27be384f66/media.xyzcdn.net/lpFhPwUofxvzb5SVRKjZNEUE5bla.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
