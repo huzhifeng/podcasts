@@ -10,7 +10,7 @@
 - 2024/08/16 [E152 陈鹏博士：搞懂这个公式再去理财，能避开 99% 的坑](https://www.xiaoyuzhoufm.com/episode/66bec2f8db5e6d6bf9ad7d28) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66bec2f8db5e6d6bf9ad7d28/media.xyzcdn.net/lmj8ZGmomlBfuACqptib5gOcDQ0k.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/08/15 [番外 05：串台三五环｜坦桑尼亚旅行报告](https://www.ximalaya.com/sound/748633683) | [音频](https://dl.wavpub.com/item/227_31602823_6492.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/08/21 [No.114 ⚛️ 逝者｜李政道：细推物理须行乐，何用浮名绊此身](https://www.ximalaya.com/sound/750224864) | [音频](https://dl.wavpub.com/item/227_31605232_5834.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/08/18 [Vol.172 紧急放送：星巴克“棘手的遗产”](https://www.ximalaya.com/sound/749709201) | [音频](https://aod.cos.tx.xmcdn.com/storages/04aa-audiofreehighqps/C1/C7/GKwRIDoKmHr0AIWvTwMCNQ7o.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
