@@ -13,7 +13,7 @@
 - 2024/08/21 [No.114 ⚛️ 逝者｜李政道：细推物理须行乐，何用浮名绊此身](https://www.ximalaya.com/sound/750224864) | [音频](https://dl.wavpub.com/item/227_31605232_5834.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/08/18 [Vol.172 紧急放送：星巴克“棘手的遗产”](https://www.ximalaya.com/sound/749709201) | [音频](https://aod.cos.tx.xmcdn.com/storages/04aa-audiofreehighqps/C1/C7/GKwRIDoKmHr0AIWvTwMCNQ7o.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/08/21 [Vol.173 国产“安卓税”背后的手游渠道战争](https://www.ximalaya.com/sound/750523992) | [音频](https://aod.cos.tx.xmcdn.com/storages/e2dc-audiofreehighqps/BF/C2/GKwRIDoKm8HiAJk0ugMDo9Ac.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
