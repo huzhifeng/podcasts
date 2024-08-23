@@ -7,7 +7,7 @@
 - 2024/08/19 [EP47 《对赌》：21世纪反内耗黄金守则](https://www.ximalaya.com/sound/749741255) | [音频](https://aod.cos.tx.xmcdn.com/storages/92b4-audiofreehighqps/DC/C9/GKwRIJEKl-neBVCTjQMCFEXE.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/08/16 [E152 陈鹏博士：搞懂这个公式再去理财，能避开 99% 的坑](https://www.xiaoyuzhoufm.com/episode/66bec2f8db5e6d6bf9ad7d28) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66bec2f8db5e6d6bf9ad7d28/media.xyzcdn.net/lmj8ZGmomlBfuACqptib5gOcDQ0k.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/08/23 [E153 高净值人群大观察：2024 年，他们有钱人在烦恼什么？](https://www.xiaoyuzhoufm.com/episode/66c82650ead5fc3792de6e54) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66c82650ead5fc3792de6e54/media.xyzcdn.net/lu6NJVbZ6Kxqsv8knhqCjXR40wvi.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/08/21 [No.114 ⚛️ 逝者｜李政道：细推物理须行乐，何用浮名绊此身](https://www.ximalaya.com/sound/750224864) | [音频](https://dl.wavpub.com/item/227_31605232_5834.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
