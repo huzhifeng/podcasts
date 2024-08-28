@@ -10,7 +10,7 @@
 - 2024/08/23 [E153 高净值人群大观察：2024 年，他们有钱人在烦恼什么？](https://www.xiaoyuzhoufm.com/episode/66c82650ead5fc3792de6e54) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66c82650ead5fc3792de6e54/media.xyzcdn.net/lu6NJVbZ6Kxqsv8knhqCjXR40wvi.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/08/21 [No.114 ⚛️ 逝者｜李政道：细推物理须行乐，何用浮名绊此身](https://www.ximalaya.com/sound/750224864) | [音频](https://tk.wavpub.com/WPDL_sxqurNdtKfuFuBkZzvWhWpQAuzsxcmMHwVtmSrDgQkdJypwMHTuFuzUNSG-ca.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/08/28 [No.115 从“洋跃进”到大引进](https://www.ximalaya.com/sound/752251137) | [音频](https://tk.wavpub.com/WPDL_uWLRnLNehrsNvHYnJNeXZcFwUFJYvxPzFpfTjABEREqUVMKvBEzQdhXWZS-75.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/08/25 [城市就是这样 05 | 贵阳，二线城市的线下商业一定千篇一律？](https://www.ximalaya.com/sound/751464349) | [音频](https://aod.cos.tx.xmcdn.com/storages/168d-audiofreehighqps/37/53/GKwRIJEKoJ55AIpsLwMFad9_.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
