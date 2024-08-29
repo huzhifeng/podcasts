@@ -10,10 +10,10 @@
 - 2024/08/23 [E153 高净值人群大观察：2024 年，他们有钱人在烦恼什么？](https://www.xiaoyuzhoufm.com/episode/66c82650ead5fc3792de6e54) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66c82650ead5fc3792de6e54/media.xyzcdn.net/lu6NJVbZ6Kxqsv8knhqCjXR40wvi.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/08/28 [No.115 从“洋跃进”到大引进](https://www.ximalaya.com/sound/752251137) | [音频](https://tk.wavpub.com/WPDL_uWLRnLNehrsNvHYnJNeXZcFwUFJYvxPzFpfTjABEREqUVMKvBEzQdhXWZS-75.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/08/29 [番外 06： 这回半拿铁真的要讲西游记了](https://www.ximalaya.com/sound/752519914) | [音频](https://tk.wavpub.com/WPDL_fJekxAzncMbdkUVvSUTZxpyReDMTaqPTbECbWAaUbduYFzrZzTJcNqDpgc-a8.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/08/25 [城市就是这样 05 | 贵阳，二线城市的线下商业一定千篇一律？](https://www.ximalaya.com/sound/751464349) | [音频](https://aod.cos.tx.xmcdn.com/storages/168d-audiofreehighqps/37/53/GKwRIJEKoJ55AIpsLwMFad9_.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/08/28 [Vol.174 小历史 | 1759，“十八世纪的乔布斯”开始创业](https://www.ximalaya.com/sound/752344466) | [音频](https://aod.cos.tx.xmcdn.com/storages/aa21-audiofreehighqps/FB/63/GKwRIW4KpP_DAMRk9AMHNTVG.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
