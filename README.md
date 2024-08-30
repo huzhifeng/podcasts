@@ -7,13 +7,13 @@
 - 2024/08/27 [番外：Melody & Marc「狂喜播客节」线下对谈专场](https://www.ximalaya.com/sound/751744262) | [音频](https://aod.cos.tx.xmcdn.com/storages/cbf1-audiofreehighqps/15/AF/GKwRINsKogy0AhcEbQMF-VQ9.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/08/23 [E153 高净值人群大观察：2024 年，他们有钱人在烦恼什么？](https://www.xiaoyuzhoufm.com/episode/66c82650ead5fc3792de6e54) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66c82650ead5fc3792de6e54/media.xyzcdn.net/lu6NJVbZ6Kxqsv8knhqCjXR40wvi.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/08/30 [E154 对话李翔：我想以自己的方式被世界看到](https://www.xiaoyuzhoufm.com/episode/66d15603f96fa67c72491ec2) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66d15603f96fa67c72491ec2/media.xyzcdn.net/lmw6fl0xZHu1XDACakdLpmNgPwdO.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/08/29 [番外 06： 这回半拿铁真的要讲西游记了](https://www.ximalaya.com/sound/752519914) | [音频](https://tk.wavpub.com/WPDL_fJekxAzncMbdkUVvSUTZxpyReDMTaqPTbECbWAaUbduYFzrZzTJcNqDpgc-a8.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/08/28 [Vol.174 小历史 | 1759，“十八世纪的乔布斯”开始创业](https://www.ximalaya.com/sound/752344466) | [音频](https://aod.cos.tx.xmcdn.com/storages/aa21-audiofreehighqps/FB/63/GKwRIW4KpP_DAMRk9AMHNTVG.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/08/28 [Vol.174 小历史 | 1759，“十八世纪的乔布斯”开始创业](https://www.ximalaya.com/sound/752344466) | [音频](https://aod.cos.tx.xmcdn.com/storages/f6a1-audiofreehighqps/52/9E/GKwRIW4KpwoHAMPJEAMH8baY.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
