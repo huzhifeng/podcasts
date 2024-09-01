@@ -4,7 +4,7 @@
 - 2024/06/11 [E36 孟岩对话周奇墨：在高处做空自己](https://www.xiaoyuzhoufm.com/episode/6667f31dc26e396a36eefe25) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/6667f31dc26e396a36eefe25/media.xyzcdn.net/ljJYPINg_uUnMMt8WMuIsiU41BZt.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
 
 ## 纵横四海
-- 2024/08/27 [番外：Melody & Marc「狂喜播客节」线下对谈专场](https://www.ximalaya.com/sound/751744262) | [音频](https://aod.cos.tx.xmcdn.com/storages/cbf1-audiofreehighqps/15/AF/GKwRINsKogy0AhcEbQMF-VQ9.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
+- 2024/08/19 [EP47 《对赌》：21世纪反内耗黄金守则](https://www.ximalaya.com/sound/749741255) | [音频](https://aod.cos.tx.xmcdn.com/storages/92b4-audiofreehighqps/DC/C9/GKwRIJEKl-neBVCTjQMCFEXE.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
 - 2024/08/30 [E154 对话李翔：我想以自己的方式被世界看到](https://www.xiaoyuzhoufm.com/episode/66d15603f96fa67c72491ec2) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66d15603f96fa67c72491ec2/media.xyzcdn.net/lmw6fl0xZHu1XDACakdLpmNgPwdO.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
