@@ -13,7 +13,7 @@
 - 2024/08/29 [番外 06： 这回半拿铁真的要讲西游记了](https://www.ximalaya.com/sound/752519914) | [音频](https://tk.wavpub.com/WPDL_fJekxAzncMbdkUVvSUTZxpyReDMTaqPTbECbWAaUbduYFzrZzTJcNqDpgc-a8.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/08/28 [Vol.174 小历史 | 1759，“十八世纪的乔布斯”开始创业](https://www.ximalaya.com/sound/752344466) | [音频](https://aod.cos.tx.xmcdn.com/storages/f6a1-audiofreehighqps/52/9E/GKwRIW4KpwoHAMPJEAMH8baY.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/09/01 [商业小样06 | 国旗背后的生意](https://www.ximalaya.com/sound/753346430) | [音频](https://aod.cos.tx.xmcdn.com/storages/476a-audiofreehighqps/A9/6D/GKwRIUEKqlumAER4aAMJN9VK.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
