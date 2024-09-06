@@ -7,7 +7,7 @@
 - 2024/09/05 [EP48 哈佛谈判课：谈判，原来这么简单？](https://www.ximalaya.com/sound/754241918) | [音频](https://aod.cos.tx.xmcdn.com/storages/77e6-audiofreehighqps/19/A7/GKwRIJIKrx3aBb03gQMLBlhR.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/08/30 [E154 对话李翔：我想以自己的方式被世界看到](https://www.xiaoyuzhoufm.com/episode/66d15603f96fa67c72491ec2) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66d15603f96fa67c72491ec2/media.xyzcdn.net/lmw6fl0xZHu1XDACakdLpmNgPwdO.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/09/06 [对话30年游戏从业者许怡然：太折腾容易做无用功，有时候你得等风来](https://www.xiaoyuzhoufm.com/episode/66da9e85bfd7110df4aa09d1) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66da9e85bfd7110df4aa09d1/media.xyzcdn.net/lkAF6SxFC387SwFnLLWDcgt5HJ76.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/09/04 [No.116 日漫史 4｜黄金时代·上：阿拉蕾、足球小将与北斗神拳](https://www.ximalaya.com/sound/754037116) | [音频](https://tk.wavpub.com/WPDL_RwrSDNAEkTKDPjqzFAQMHZACgZTSnrLbDLGAcZHmkutsdAWkvwrqkuTsAz-9b.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
