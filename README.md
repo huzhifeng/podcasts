@@ -13,7 +13,7 @@
 - 2024/09/04 [No.116 日漫史 4｜黄金时代·上：阿拉蕾、足球小将与北斗神拳](https://www.ximalaya.com/sound/754037116) | [音频](https://tk.wavpub.com/WPDL_RwrSDNAEkTKDPjqzFAQMHZACgZTSnrLbDLGAcZHmkutsdAWkvwrqkuTsAz-9b.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/09/04 [Vol.175 “飞机坟场”做的是什么生意？](https://www.ximalaya.com/sound/754089322) | [音频](https://aod.cos.tx.xmcdn.com/storages/4455-audiofreehighqps/C9/A9/GKwRIDoKrjPLALzsOgMKs-96.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/09/08 [商业小样07 | 六神花露水，原来不是老字号？](https://www.ximalaya.com/sound/755118883) | [音频](https://aod.cos.tx.xmcdn.com/storages/b4c1-audiofreehighqps/1D/75/GKwRIDoKs5m3AFOjXQMM7k1b.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
