@@ -10,7 +10,7 @@
 - 2024/09/06 [对话30年游戏从业者许怡然：太折腾容易做无用功，有时候你得等风来](https://www.xiaoyuzhoufm.com/episode/66da9e85bfd7110df4aa09d1) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66da9e85bfd7110df4aa09d1/media.xyzcdn.net/lkAF6SxFC387SwFnLLWDcgt5HJ76.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/09/10 [番外 07：狂喜播客节｜日谈公园小伙子&潇磊，播客创作漫谈](https://www.ximalaya.com/sound/754717913) | [音频](https://tk.wavpub.com/WPDL_rcfVURztSkNQJtWbbTDRxppZCFekqpdwKhmXmSRzJrBWsGbnYFgJWgJpEE-91.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/09/11 [No.117 从包产到户到家庭联产承包责任制](https://www.ximalaya.com/sound/755851498) | [音频](https://tk.wavpub.com/WPDL_pUTWwhbwwjWBrzuTGSAgxfKjLsydhGVsGamVRgzcpMFUDGpJarybRgCkLJ-47.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/09/08 [商业小样07 | 六神花露水，原来不是老字号？](https://www.ximalaya.com/sound/755118883) | [音频](https://aod.cos.tx.xmcdn.com/storages/b4c1-audiofreehighqps/1D/75/GKwRIDoKs5m3AFOjXQMM7k1b.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
@@ -22,5 +22,5 @@
 - 2024/09/08 [第129期 社交媒体断案](https://hosting.wavpub.cn/pie/ep129/) | [音频](https://tk.wavpub.com/WPDL_buADqKMBKTGgSdzGLMfBWzHwUpxVPXbdDAKqVqEupxruwfZMEtajzwacge-51.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/09/02 [EP75 从总结到搜索：LLM 应用实践分享](https://www.xiaoyuzhoufm.com/episode/66d5b4955a91beebb344fc1c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/66d5b4955a91beebb344fc1c/media.xyzcdn.net/llo1WWBgxhL2UeIV-dIXrJJiYQbe.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/09/10 [EP76 “你拥有小报童的入驻资格吗”，聊一下最近有点🔥的小报童与内容创作](https://www.xiaoyuzhoufm.com/episode/66e069fdbfd7110df4b732a0) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/66e069fdbfd7110df4b732a0/media.xyzcdn.net/ln4OExn3mXtGpyJbiODSB7BREaqN.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
