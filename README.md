@@ -19,7 +19,7 @@
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2024/09/14 [第130期 帝国大选冲刺](https://hosting.wavpub.cn/pie/ep130/) | [音频](https://tk.wavpub.com/WPDL_FUsXWrsHPYYNQrHYZWdsxqZPFEJjERyDefyGkScLwEyvjWTGPETEpuJyVh-84.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2024/09/21 [第131期 AI什么值得学](https://hosting.wavpub.cn/pie/ep131/) | [音频](https://tk.wavpub.com/WPDL_udUBuBwmykvujnfYAAZKVjHhqpbBTeaSfbQJcJeFvbXrtPcBnKNUmyeEgW-1f.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2024/09/10 [EP76 “你拥有小报童的入驻资格吗”，聊一下最近有点🔥的小报童与内容创作](https://www.xiaoyuzhoufm.com/episode/66e069fdbfd7110df4b732a0) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/66e069fdbfd7110df4b732a0/media.xyzcdn.net/ln4OExn3mXtGpyJbiODSB7BREaqN.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
