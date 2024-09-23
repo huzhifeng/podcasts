@@ -13,7 +13,7 @@
 - 2024/09/19 [番外 08：狂喜播客节｜大壹&猛哥&史炎&刘飞：职场里到底有没有朋友？](https://www.ximalaya.com/sound/757760374) | [音频](https://tk.wavpub.com/WPDL_QYEMFvNKwWRXuGeexXzrXWBQhvjfzQSdLeEnvfJqhCHTvyTzwCJQssqbch-b5.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/09/18 [Vol.177 迪士尼：内容魔法再次显灵？](https://www.ximalaya.com/sound/757707097) | [音频](https://aod.cos.tx.xmcdn.com/storages/cbdd-audiofreehighqps/3F/CA/GKwRIJEKwJtTALTu0wMRy_Wd.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/09/22 [商业小样08 | 做生意离不开的打印](https://www.ximalaya.com/sound/758816213) | [音频](https://aod.cos.tx.xmcdn.com/storages/e3b4-audiofreehighqps/01/0B/GKwRIJEKxZlBAEK3iAMTmyXK.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
