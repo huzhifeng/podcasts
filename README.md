@@ -10,7 +10,7 @@
 - 2024/09/20 [怎么才能找到好医生？从内部突破，我们问了问医生是怎么想的](https://www.xiaoyuzhoufm.com/episode/66ecea2ce7176e8a5cb2e562) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66ecea2ce7176e8a5cb2e562/media.xyzcdn.net/lrIlgbJVJlkGApUvES2D8RUEs8Cr.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/09/19 [番外 08：狂喜播客节｜大壹&猛哥&史炎&刘飞：职场里到底有没有朋友？](https://www.ximalaya.com/sound/757760374) | [音频](https://tk.wavpub.com/WPDL_QYEMFvNKwWRXuGeexXzrXWBQhvjfzQSdLeEnvfJqhCHTvyTzwCJQssqbch-b5.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/09/25 [No.119 ⚖️ 民营经济滥觞：“从知识分子第一案”到“温州八大王”](https://www.ximalaya.com/sound/759532218) | [音频](https://tk.wavpub.com/WPDL_CpWhHmbZvdXXDqkLLbkRTTEJMakPWcHvQZbUMUkTSnXLbwGnkbjrKJBBuM-c5.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/09/22 [商业小样08 | 做生意离不开的打印](https://www.ximalaya.com/sound/758816213) | [音频](https://aod.cos.tx.xmcdn.com/storages/e3b4-audiofreehighqps/01/0B/GKwRIJEKxZlBAEK3iAMTmyXK.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
