@@ -7,7 +7,7 @@
 - 2024/09/05 [EP48 哈佛谈判课：谈判，原来这么简单？](https://www.ximalaya.com/sound/754241918) | [音频](https://aod.cos.tx.xmcdn.com/storages/77e6-audiofreehighqps/19/A7/GKwRIJIKrx3aBb03gQMLBlhR.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/09/27 [别追寻热爱了！比起它，这些东西让你更靠近财富自由——](https://www.xiaoyuzhoufm.com/episode/66f65bc581cdab3a937360f7) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66f65bc581cdab3a937360f7/media.xyzcdn.net/lpfU5s962NMq17dxz-FlLOSVGJvQ.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/10/04 [现在还能投资吗？听完这份穿越时间的投资指南，就有数了](https://www.xiaoyuzhoufm.com/episode/66fbf3836c7f8177865d216c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66fbf3836c7f8177865d216c/media.xyzcdn.net/luVaSf5dpLW5-DtdK3G5vL7RxlDl.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/09/25 [No.119 ⚖️ 民营经济滥觞：“从知识分子第一案”到“温州八大王”](https://www.ximalaya.com/sound/759532218) | [音频](https://tk.wavpub.com/WPDL_CpWhHmbZvdXXDqkLLbkRTTEJMakPWcHvQZbUMUkTSnXLbwGnkbjrKJBBuM-c5.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
