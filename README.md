@@ -22,5 +22,5 @@
 - 2024/10/05 [第133期 数学有多重要](https://hosting.wavpub.cn/pie/ep133/) | [音频](https://tk.wavpub.com/WPDL_hTYUYKhHzEwDdKfEdRunNEjcQrqXTfFXJvQKLdjPZkjQBLssXRsswasMBV-0c.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/09/23 [EP77 Eve 分享：如何进行有效的海外市场推广？希望帮助开发者真正成功。](https://www.xiaoyuzhoufm.com/episode/66f17b562adfe48b83e2476c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/66f17b562adfe48b83e2476c/media.xyzcdn.net/lhTnKijmA4lM4iZ9eR0m0Gpn-Uk7.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/10/07 [EP78 “澳洲工作环境比想象的复杂” Atlassian 多年员工访谈!](https://www.xiaoyuzhoufm.com/episode/6703f15581cdab3a934f0445) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6703f15581cdab3a934f0445/media.xyzcdn.net/lnazHbt2e8wsACzM5eLcJ4pNtjg8.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
