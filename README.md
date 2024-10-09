@@ -4,13 +4,13 @@
 - 2024/06/11 [E36 孟岩对话周奇墨：在高处做空自己](https://www.xiaoyuzhoufm.com/episode/6667f31dc26e396a36eefe25) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/6667f31dc26e396a36eefe25/media.xyzcdn.net/ljJYPINg_uUnMMt8WMuIsiU41BZt.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
 
 ## 纵横四海
-- 2024/09/05 [EP48 哈佛谈判课：谈判，原来这么简单？](https://www.ximalaya.com/sound/754241918) | [音频](https://aod.cos.tx.xmcdn.com/storages/77e6-audiofreehighqps/19/A7/GKwRIJIKrx3aBb03gQMLBlhR.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
+- 2024/10/09 [EP49《思考快与慢》：让你的大脑比别人的更好用！](https://www.ximalaya.com/sound/763337639) | [音频](https://aod.cos.tx.xmcdn.com/storages/c498-audiofreehighqps/74/00/GKwRINsK2vtCBXMu6wMblicY.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
 - 2024/10/04 [现在还能投资吗？听完这份穿越时间的投资指南，就有数了](https://www.xiaoyuzhoufm.com/episode/66fbf3836c7f8177865d216c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/66fbf3836c7f8177865d216c/media.xyzcdn.net/luVaSf5dpLW5-DtdK3G5vL7RxlDl.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/09/25 [No.119 ⚖️ 民营经济滥觞：“从知识分子第一案”到“温州八大王”](https://www.ximalaya.com/sound/759532218) | [音频](https://tk.wavpub.com/WPDL_CpWhHmbZvdXXDqkLLbkRTTEJMakPWcHvQZbUMUkTSnXLbwGnkbjrKJBBuM-c5.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/10/09 [No.120 日漫史 6｜黄金时代·下：灌篮高手、幽游白书、乱马1/2和柯南](https://www.ximalaya.com/sound/763125826) | [音频](https://tk.wavpub.com/WPDL_JqPkSWBAyZTTHttUgTYnPPTfHSXQwzWdYHTDuMELTsgZqQqysEhpBDxkuf-4e.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/09/25 [Vol.178 如何为天灾买保险？](https://www.ximalaya.com/sound/759837306) | [音频](https://aod.cos.tx.xmcdn.com/storages/a0aa-audiofreehighqps/32/12/GKwRIDoKydmAAL1MbAMVb8RX.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
