@@ -13,7 +13,7 @@
 - 2024/10/09 [No.120 日漫史 6｜黄金时代·下：灌篮高手、幽游白书、乱马1/2和柯南](https://www.ximalaya.com/sound/763125826) | [音频](https://tk.wavpub.com/WPDL_JqPkSWBAyZTTHttUgTYnPPTfHSXQwzWdYHTDuMELTsgZqQqysEhpBDxkuf-4e.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/09/25 [Vol.178 如何为天灾买保险？](https://www.ximalaya.com/sound/759837306) | [音频](https://aod.cos.tx.xmcdn.com/storages/a0aa-audiofreehighqps/32/12/GKwRIDoKydmAAL1MbAMVb8RX.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/10/09 [Vol.179 春秋航空，越抠越赚](https://www.ximalaya.com/sound/763664214) | [音频](https://aod.cos.tx.xmcdn.com/storages/ab55-audiofreehighqps/03/92/GKwRIW4K3GigAL3iywMcLsDX.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
