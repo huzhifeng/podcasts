@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/10/11 [E160 牛市（少）亏钱指南](https://www.xiaoyuzhoufm.com/episode/670882cc6c7f817786335a3f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/670882cc6c7f817786335a3f/media.xyzcdn.net/lt60IecquINOt1Juw9K-xS8-jLoX.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/10/18 [人生大决策，女性如何选？让这些性别视角的经济学研究，带你超越周期](https://www.xiaoyuzhoufm.com/episode/671071b2db2cf82757d2301a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/671071b2db2cf82757d2301a/media.xyzcdn.net/lhW5Pgj5PhftuxHyegavI8QewSJn.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/10/16 [No.121 从价格双轨制到物价闯关](https://www.ximalaya.com/sound/765688815) | [音频](https://tk.wavpub.com/WPDL_PjSrrdtTgetbCNBGPQBpgEgCwZVDRnEfhnvffUSTRYKQvaPbBSgEjrrhvu-3c.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
