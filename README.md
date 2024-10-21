@@ -13,7 +13,7 @@
 - 2024/10/16 [No.121 从价格双轨制到物价闯关](https://www.ximalaya.com/sound/765688815) | [音频](https://tk.wavpub.com/WPDL_PjSrrdtTgetbCNBGPQBpgEgCwZVDRnEfhnvffUSTRYKQvaPbBSgEjrrhvu-3c.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/10/16 [Vol.180 2024“金字招牌”特辑：独孤求buy](https://www.ximalaya.com/sound/765823693) | [音频](https://aod.cos.tx.xmcdn.com/storages/3beb-audiofreehighqps/10/FF/GKwRIW4K5akcAM4hCgMf2Yrt.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/10/20 [商业小样09 | 金价上涨，谁在赚钱？](https://www.ximalaya.com/sound/767028476) | [音频](https://aod.cos.tx.xmcdn.com/storages/c7a5-audiofreehighqps/51/7F/GKwRIasK6u5qADurKAMh-Hoo.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
