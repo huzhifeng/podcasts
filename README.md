@@ -10,7 +10,7 @@
 - 2024/10/18 [人生大决策，女性如何选？让这些性别视角的经济学研究，带你超越周期](https://www.xiaoyuzhoufm.com/episode/671071b2db2cf82757d2301a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/671071b2db2cf82757d2301a/media.xyzcdn.net/lhW5Pgj5PhftuxHyegavI8QewSJn.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/10/16 [No.121 从价格双轨制到物价闯关](https://www.ximalaya.com/sound/765688815) | [音频](https://tk.wavpub.com/WPDL_PjSrrdtTgetbCNBGPQBpgEgCwZVDRnEfhnvffUSTRYKQvaPbBSgEjrrhvu-3c.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/10/23 [No.122 日漫史 7｜大航海时代：青年/少女/犯罪/黑暗/美食/职场](https://www.ximalaya.com/sound/767876713) | [音频](https://tk.wavpub.com/WPDL_SJtjkWjBWbJxaDenZaGGtQSDhWEJdnsKrtSBXrcuXUynJTcqrSLmKUArHF-ac.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/10/20 [商业小样09 | 金价上涨，谁在赚钱？](https://www.ximalaya.com/sound/767028476) | [音频](https://aod.cos.tx.xmcdn.com/storages/c7a5-audiofreehighqps/51/7F/GKwRIasK6u5qADurKAMh-Hoo.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
