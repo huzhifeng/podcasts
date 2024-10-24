@@ -13,7 +13,7 @@
 - 2024/10/23 [No.122 日漫史 7｜大航海时代：青年/少女/犯罪/黑暗/美食/职场](https://www.ximalaya.com/sound/767876713) | [音频](https://tk.wavpub.com/WPDL_SJtjkWjBWbJxaDenZaGGtQSDhWEJdnsKrtSBXrcuXUynJTcqrSLmKUArHF-ac.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/10/20 [商业小样09 | 金价上涨，谁在赚钱？](https://www.ximalaya.com/sound/767028476) | [音频](https://aod.cos.tx.xmcdn.com/storages/c7a5-audiofreehighqps/51/7F/GKwRIasK6u5qADurKAMh-Hoo.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/10/23 [彩蛋 | “五仁叔”添田武人讲述他的索尼故事](https://www.ximalaya.com/sound/767836685) | [音频](https://aod.cos.tx.xmcdn.com/storages/96f9-audiofreehighqps/A1/AC/GKwRIJEK7n3hALm9ZQMjWlWw.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
