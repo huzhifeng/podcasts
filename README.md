@@ -18,3 +18,9 @@
 ## 硬地骇客
 - 2024/10/21 [EP80 1024特辑：我们（公司）应该如何过好程序员节？](https://www.xiaoyuzhoufm.com/episode/67166835db2cf82757e38127) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/67166835db2cf82757e38127/media.xyzcdn.net/lkAUTPra4N0svNYdabJP_Ng3SRE_.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
+## 半拿铁
+- 2024/10/23 [No.122 日漫史 7｜大航海时代：青年/少女/犯罪/黑暗/美食/职场](https://www.ximalaya.com/sound/767876713) | [音频](https://tk.wavpub.com/WPDL_SJtjkWjBWbJxaDenZaGGtQSDhWEJdnsKrtSBXrcuXUynJTcqrSLmKUArHF-ac.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+
+## 后互联网时代的乱弹
+- 2024/10/19 [第135期 科技大会怎么办](https://hosting.wavpub.cn/pie/ep135/) | [音频](https://tk.wavpub.com/WPDL_XuzBrYWmmvAQkNSSySMSKewWfxnJMLdyuyDHdfyssJbAYrmhgqFCYDHEZg-0a.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+
