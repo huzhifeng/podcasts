@@ -1,13 +1,16 @@
 # 播客
 
 ## 无人知晓
-- 2024/06/11 [E36 孟岩对话周奇墨：在高处做空自己](https://www.xiaoyuzhoufm.com/episode/6667f31dc26e396a36eefe25) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/6667f31dc26e396a36eefe25/media.xyzcdn.net/ljJYPINg_uUnMMt8WMuIsiU41BZt.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
+- 2024/10/29 [E37 鱼不存在](https://www.xiaoyuzhoufm.com/episode/6720836fbad346ebe6399017) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/6720836fbad346ebe6399017/media.xyzcdn.net/lu1L3ucT8gNS6cVyQe0K2Xfqu_ve.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
 
 ## 纵横四海
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
 - 2024/10/25 [对话张云帆：如果命运可以改写，往前叫穿越，往后就是规划你的人生](https://www.xiaoyuzhoufm.com/episode/671b521ceb46cd6655a82f9b) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/671b521ceb46cd6655a82f9b/media.xyzcdn.net/lp8ES515sWKG1M-sQgNK7pBFqZX2.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+
+## 半拿铁
+- 2024/10/23 [No.122 日漫史 7｜大航海时代：青年/少女/犯罪/黑暗/美食/职场](https://www.ximalaya.com/sound/767876713) | [音频](https://tk.wavpub.com/WPDL_SJtjkWjBWbJxaDenZaGGtQSDhWEJdnsKrtSBXrcuXUynJTcqrSLmKUArHF-ac.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/10/27 [商业小样10 | 为什么要把手机折来折去？](https://www.ximalaya.com/sound/769133289) | [音频](https://aod.cos.tx.xmcdn.com/storages/a640-audiofreehighqps/57/4D/GKwRIasK9CiYADPO7AMl0pkw.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
