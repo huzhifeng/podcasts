@@ -13,7 +13,7 @@
 - 2024/11/13 [No.125 中国股市历史钩沉：从上交所到深交所](https://www.ximalaya.com/sound/774076761) | [音频](https://tk.wavpub.com/WPDL_SZaUYPZrKXQrcUHRHTRfzzfPEbsFNXTdtvPcDPChfRfzztPFkTagRzDquh-e0.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/11/10 [商业小样12 | 道琼斯指数是怎么来的](https://www.ximalaya.com/sound/773416215) | [音频](https://aod.cos.tx.xmcdn.com/storages/1856-audiofreehighqps/FC/B1/GKwRIaILBo7lADzzhAMtF2B3.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/11/13 [Vol.184 利用蔚来，也颠覆蔚来](https://www.ximalaya.com/sound/774411798) | [音频](https://aod.cos.tx.xmcdn.com/storages/2343-audiofreehighqps/51/2F/GKwRIMALCojWALUiywMu3ht9.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/05/19 [【串台】和姜 Dora 聊聊：创业复盘，在具体的事中找到意义](https://www.xiaoyuzhoufm.com/episode/664962d382b428eafd844366) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/664962d382b428eafd844366/media.xyzcdn.net/llloyy2KoUURla1cgosxmkenwwHw.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
