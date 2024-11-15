@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/11/08 [E164 吉姆·西蒙斯：征服市场的人](https://www.xiaoyuzhoufm.com/episode/672daea641963c65b0ebaf99) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/672daea641963c65b0ebaf99/media.xyzcdn.net/lmUkaQGsYhF-QK9AiMJg4squCUeu.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/11/15 [对话半佛仙人：搞懂这八个字，人生，易如反掌🤚🏻](https://www.xiaoyuzhoufm.com/episode/6735a29af373fe5d4d3a2627) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6735a29af373fe5d4d3a2627/media.xyzcdn.net/lqPRuPRI6YrpV2CruQPCSrtMb7Df.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/11/13 [No.125 中国股市历史钩沉：从上交所到深交所](https://www.ximalaya.com/sound/774076761) | [音频](https://tk.wavpub.com/WPDL_SZaUYPZrKXQrcUHRHTRfzzfPEbsFNXTdtvPcDPChfRfzztPFkTagRzDquh-e0.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
