@@ -10,7 +10,7 @@
 - 2024/11/15 [对话半佛仙人：搞懂这八个字，人生，易如反掌🤚🏻](https://www.xiaoyuzhoufm.com/episode/6735a29af373fe5d4d3a2627) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6735a29af373fe5d4d3a2627/media.xyzcdn.net/lqPRuPRI6YrpV2CruQPCSrtMb7Df.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/11/13 [No.125 中国股市历史钩沉：从上交所到深交所](https://www.ximalaya.com/sound/774076761) | [音频](https://tk.wavpub.com/WPDL_SZaUYPZrKXQrcUHRHTRfzzfPEbsFNXTdtvPcDPChfRfzztPFkTagRzDquh-e0.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/11/20 [No.126 特朗普：把世界当成游乐场](https://www.ximalaya.com/sound/776560595) | [音频](https://tk.wavpub.com/WPDL_hJmKNRccYTQtfaHuMWFbYHzQJaBfFSnxdQtRbPKNPDUWNvxSttMRkFYcyf-ca.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/11/13 [Vol.184 利用蔚来，也颠覆蔚来](https://www.ximalaya.com/sound/774411798) | [音频](https://aod.cos.tx.xmcdn.com/storages/2343-audiofreehighqps/51/2F/GKwRIMALCojWALUiywMu3ht9.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
