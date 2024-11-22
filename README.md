@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/11/15 [对话半佛仙人：搞懂这八个字，人生，易如反掌🤚🏻](https://www.xiaoyuzhoufm.com/episode/6735a29af373fe5d4d3a2627) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6735a29af373fe5d4d3a2627/media.xyzcdn.net/lqPRuPRI6YrpV2CruQPCSrtMb7Df.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/11/22 [对话沈帅波：重新理解创业这件事（2025版SVIP抢先听）](https://www.xiaoyuzhoufm.com/episode/674027988d1233fb0d298f2a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/674027988d1233fb0d298f2a/media.xyzcdn.net/ljaaRR-TAsvQDI2shB0RpeTGc_4T.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/11/20 [No.126 特朗普：把世界当成游乐场](https://www.ximalaya.com/sound/776560595) | [音频](https://tk.wavpub.com/WPDL_hJmKNRccYTQtfaHuMWFbYHzQJaBfFSnxdQtRbPKNPDUWNvxSttMRkFYcyf-ca.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
