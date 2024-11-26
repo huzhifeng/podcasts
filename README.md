@@ -22,5 +22,5 @@
 - 2024/11/23 [第140期 虚假和真实的货币战争](https://hosting.wavpub.cn/pie/ep140/) | [音频](https://tk.wavpub.com/WPDL_GFhpJsLZeqnCQbFTNsXqnpYCrHFDHwVevEjYENrNysVTAZXnkvXUfxKJHm-7c.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/11/13 [EP83 对话侯璐瑶：AI时代的大数据平台正在如何发展？衰落还是机遇？](https://www.xiaoyuzhoufm.com/episode/6734353ff373fe5d4de79016) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6734353ff373fe5d4de79016/media.xyzcdn.net/lmEv4BLUE7l1XdG6xjG3qZPaclXY.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/11/25 [EP84 从何同学的“翻车”，聊到AI的版权问题](https://www.xiaoyuzhoufm.com/episode/674454ff11045e78e5c8552e) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/674454ff11045e78e5c8552e/media.xyzcdn.net/lvLWp2jaQQoEzTLFc1nq8262qiRy.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
