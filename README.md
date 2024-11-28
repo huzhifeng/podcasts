@@ -13,7 +13,7 @@
 - 2024/11/27 [No.127 黄金：权力、财富与文化的历史缩影](https://www.ximalaya.com/sound/778357296) | [音频](https://tk.wavpub.com/WPDL_JYfdzkLDfpJMwYRYKdxkBUKkVyaQnUPvdXdcVYZJCQmJvwZjZNUNqLXyHh-d3.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/11/24 [城市就是这样 06 | 城市可以有几个市中心？](https://www.ximalaya.com/sound/777803328) | [音频](https://aod.cos.tx.xmcdn.com/storages/b3e3-audiofreehighqps/3D/C9/GKwRIMALGNlXAN1K4QM0-Ddr.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/11/27 [Vol.186 卫生巾的真需求](https://www.ximalaya.com/sound/778833255) | [音频](https://aod.cos.tx.xmcdn.com/storages/d50d-audiofreehighqps/5C/55/GKwRIW4LHPM4AM_ojQM27F5D.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
