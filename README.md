@@ -13,7 +13,7 @@
 - 2024/12/04 [No.128 小平南巡](https://www.ximalaya.com/sound/780702238) | [音频](https://tk.wavpub.com/WPDL_UvJxAjxSARgxyfHBZEhGPHjBdcLnQrHAwENGDQpXhTdxdQcMmutCRQztxc-e0.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/12/01 [商业小样13 | 丰巢在赚谁的钱？](https://www.ximalaya.com/sound/780030223) | [音频](https://aod.cos.tx.xmcdn.com/storages/79bc-audiofreehighqps/3A/2D/GKwRINsLIitcAFFuZQM5Fo90.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/12/04 [Vol.187 合肥，出钱的决心](https://www.ximalaya.com/sound/781044291) | [音频](https://aod.cos.tx.xmcdn.com/storages/b696-audiofreehighqps/B4/F0/GKwRIW4LJhZJANIg1gM6102F.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
