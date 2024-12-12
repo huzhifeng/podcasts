@@ -13,7 +13,7 @@
 - 2024/12/11 [No.129 分税制改革：手里没把米，叫鸡都不来](https://www.ximalaya.com/sound/782656834) | [音频](https://tk.wavpub.com/WPDL_zRSLctYFsMFKPVXqETYTrLEwUNpqPngYjAxWrajAgmaTqTZUmrGLGDEUJC-7b.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/12/08 [商业小样14 | 肯德基麦当劳下调配送费，财报变好看了吗？](https://www.ximalaya.com/sound/782361435) | [音频](https://aod.cos.tx.xmcdn.com/storages/5308-audiofreehighqps/85/9D/GKwRIJILK4EdADzyagM9MicX.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/12/11 [Vol.188 2024十大商业新闻](https://www.ximalaya.com/sound/783371784) | [音频](https://aod.cos.tx.xmcdn.com/storages/7919-audiofreehighqps/27/99/GKwRIUELL5egAKCXVwM_ABDh.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
