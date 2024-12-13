@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/12/06 [大可不必先苦后甜！美好到来之前，用这些方式稳步抵达明天](https://www.xiaoyuzhoufm.com/episode/67529b0b17cd5416adf118ee) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67529b0b17cd5416adf118ee/media.xyzcdn.net/lvs2WtIhklwigEyr95aR-P4OmCHC.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/12/13 [E169 对话成庆：佛说赚钱好，但得如实赚](https://www.xiaoyuzhoufm.com/episode/675ba0917d8426f692bad116) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/675ba0917d8426f692bad116/media.xyzcdn.net/lnYW8fPIU9R9PtX-gjl-SEt4_BKL.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/12/11 [No.129 分税制改革：手里没把米，叫鸡都不来](https://www.ximalaya.com/sound/782656834) | [音频](https://tk.wavpub.com/WPDL_zRSLctYFsMFKPVXqETYTrLEwUNpqPngYjAxWrajAgmaTqTZUmrGLGDEUJC-7b.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
