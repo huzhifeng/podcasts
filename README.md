@@ -22,5 +22,5 @@
 - 2024/12/14 [第143期 TGA失格记](https://hosting.wavpub.cn/pie/ep143/) | [音频](https://tk.wavpub.com/WPDL_TTnkHFvBnEfAkhpnnCkLrQFzSQLqHXhLXxpSHBTFyafGtbFSAvAwvbfqYm-87.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/12/09 [EP86 对话吉光卡片作者张小吉："月薪和糖一样，都是需要戒断的"](https://www.xiaoyuzhoufm.com/episode/6756e21e17cd5416adb43223) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6756e21e17cd5416adb43223/media.xyzcdn.net/lqmyghhQfXBkm2SytARoR--M34AX.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/12/16 [EP87 对话独立设计师大琪：通过设计帮助产品做好增长](https://www.xiaoyuzhoufm.com/episode/675ff5d27d8426f69282fc29) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/675ff5d27d8426f69282fc29/media.xyzcdn.net/luymYtT48g_EJWsL6bfukO2xsdOC.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
