@@ -13,7 +13,7 @@
 - 2024/12/18 [No.130 逝者 | 琼瑶：策馬奔騰，共享人世繁華](https://www.ximalaya.com/sound/785219161) | [音频](https://tk.wavpub.com/WPDL_eqCxndfpcftkGDJLYqWUaCeyWfkBJyUhGdnHeDPvGyQKcQKhGVpysWbmvk-47.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/12/15 [城市就是这样 07 | 什么是好的街区商业？](https://www.ximalaya.com/sound/784538834) | [音频](https://aod.cos.tx.xmcdn.com/storages/242c-audiofreehighqps/7B/97/GKwRIasLNLafALwHYANBNN3A.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2024/12/18 [Vol.189 2024失意大公司·国内篇](https://www.ximalaya.com/sound/785518420) | [音频](https://aod.cos.tx.xmcdn.com/storages/03f6-audiofreehighqps/A9/C0/GKwRINsLOLeYAL50uwNDCP1a.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
