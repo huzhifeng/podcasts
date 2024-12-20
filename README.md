@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/12/13 [E169 对话成庆：佛说赚钱好，但得如实赚](https://www.xiaoyuzhoufm.com/episode/675ba0917d8426f692bad116) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/675ba0917d8426f692bad116/media.xyzcdn.net/lnYW8fPIU9R9PtX-gjl-SEt4_BKL.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/12/20 [做理想主义最务实的践行者：不殉道，不吃苦，还能赚钱](https://www.xiaoyuzhoufm.com/episode/67650ed31e823e72d35acd40) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67650ed31e823e72d35acd40/media.xyzcdn.net/lg0SkmU9L4hPH3Jf2JoxukE5bDFz.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/12/18 [No.130 逝者 | 琼瑶：策馬奔騰，共享人世繁華](https://www.ximalaya.com/sound/785219161) | [音频](https://tk.wavpub.com/WPDL_eqCxndfpcftkGDJLYqWUaCeyWfkBJyUhGdnHeDPvGyQKcQKhGVpysWbmvk-47.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
