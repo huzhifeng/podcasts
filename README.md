@@ -10,7 +10,7 @@
 - 2024/12/20 [做理想主义最务实的践行者：不殉道，不吃苦，还能赚钱](https://www.xiaoyuzhoufm.com/episode/67650ed31e823e72d35acd40) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67650ed31e823e72d35acd40/media.xyzcdn.net/lg0SkmU9L4hPH3Jf2JoxukE5bDFz.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2024/12/18 [No.130 逝者 | 琼瑶：策馬奔騰，共享人世繁華](https://www.ximalaya.com/sound/785219161) | [音频](https://tk.wavpub.com/WPDL_eqCxndfpcftkGDJLYqWUaCeyWfkBJyUhGdnHeDPvGyQKcQKhGVpysWbmvk-47.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2024/12/25 [No.131 2024年终企划「震楼机」“财经”新闻 TOP10](https://www.ximalaya.com/sound/787376327) | [音频](https://tk.wavpub.com/WPDL_deXYMTpGhLqdXKuMXSKQjhBFNBcZZGCfZAzMCQHzNjqwGyHUKPNhsBzfky-f8.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2024/12/22 [商业小样15 | Mariah Carey能在圣诞赚多少钱？](https://www.ximalaya.com/sound/786669609) | [音频](https://aod.cos.tx.xmcdn.com/storages/bb04-audiofreehighqps/BC/07/GKwRIaILPepkAD-ZRgNFTtgA.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
