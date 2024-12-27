@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2024/12/20 [做理想主义最务实的践行者：不殉道，不吃苦，还能赚钱](https://www.xiaoyuzhoufm.com/episode/67650ed31e823e72d35acd40) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67650ed31e823e72d35acd40/media.xyzcdn.net/lg0SkmU9L4hPH3Jf2JoxukE5bDFz.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2024/12/27 [怎样帮爸妈克服「养老焦虑」？这几件事情你我都能做得到💪](https://www.xiaoyuzhoufm.com/episode/676e442e15a5fd520efb0a5a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/676e442e15a5fd520efb0a5a/media.xyzcdn.net/lltnCdPesvGwxLYh_u9v_sXSeL8p.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2024/12/25 [No.131 2024年终企划「震楼机」“财经”新闻 TOP10](https://www.ximalaya.com/sound/787376327) | [音频](https://tk.wavpub.com/WPDL_deXYMTpGhLqdXKuMXSKQjhBFNBcZZGCfZAzMCQHzNjqwGyHUKPNhsBzfky-f8.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
