@@ -22,5 +22,5 @@
 - 2024/12/28 [第145期 愿大家都有美好的2025](https://hosting.wavpub.cn/pie/ep145/) | [音频](https://tk.wavpub.com/WPDL_nRJJudesarQTnNENmZmVhLJNVeFpmDtSeYRZJcTURjRWAWCXQcdzRFpWrH-3c.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2024/12/16 [EP87 对话独立设计师大琪：通过设计帮助产品做好增长](https://www.xiaoyuzhoufm.com/episode/675ff5d27d8426f69282fc29) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/675ff5d27d8426f69282fc29/media.xyzcdn.net/luymYtT48g_EJWsL6bfukO2xsdOC.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2024/12/29 [EP88 对话 Saga：20 万字文档让 ChatGPT 开发出翻译产品，实现200%按月增长](https://www.xiaoyuzhoufm.com/episode/676e3f7615a5fd520ef9ab78) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/676e3f7615a5fd520ef9ab78/media.xyzcdn.net/ltaRiR3vuqGxaDqqN46f31PFKV8b.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
