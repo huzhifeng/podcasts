@@ -13,7 +13,7 @@
 - 2025/01/01 [No.132 ️ 中国入世](https://www.ximalaya.com/sound/789355692) | [音频](https://tk.wavpub.com/WPDL_ycCCHHgSUujHLjUYfBVERJRuAgSKEnUrQgbNHKKbDbVcQxNyefbZMYVgyv-91.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2024/12/25 [Vol.190 2024失意大公司·全球篇](https://www.ximalaya.com/sound/787611220) | [音频](https://aod.cos.tx.xmcdn.com/storages/a141-audiofreehighqps/4D/C0/GKwRIDoLQgE8ANY1qANHMnCV.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/01/01 [Vol.191 2024年度话题公司：胖东来](https://www.ximalaya.com/sound/789489505) | [音频](https://aod.cos.tx.xmcdn.com/storages/e6d7-audiofreehighqps/93/C1/GKwRIasLSymsASmfpgNK0BpC.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
