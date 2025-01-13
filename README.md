@@ -13,7 +13,7 @@
 - 2025/01/08 [No.133 ：）人民不再灌水：FidoNet、Discuz! 、水木清华、天涯、猫扑的 BBS 江湖往事](https://www.ximalaya.com/sound/792177021) | [音频](https://tk.wavpub.com/WPDL_tZUpZwptdBqDMNvDBRZPpcvHXCLvyFmThvCEYArersZzegFfQugpKJcBwQ-d2.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/01/08 [Vol.192 餐饮“过冬”的三个故事](https://www.ximalaya.com/sound/792190218) | [音频](https://aod.cos.tx.xmcdn.com/storages/b475-audiofreehighqps/9D/8E/GKwRIW4LVEQZAJXMZwNPXIqy.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/01/12 [商业小样17 | 哪些政府持有比特币？](https://www.ximalaya.com/sound/794526456) | [音频](https://aod.cos.tx.xmcdn.com/storages/bb95-audiofreehighqps/1C/6B/GKwRINsLWZq6AD1laANSrmRQ.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
