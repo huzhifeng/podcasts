@@ -10,7 +10,7 @@
 - 2025/01/17 [过去一年，地球人究竟怎么了？从金钱视角，重新理解国际政治大事](https://www.xiaoyuzhoufm.com/episode/6789c1ff2d0847429809641e) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6789c1ff2d0847429809641e/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ljR5G8umQoOqDLbquepBPChYdFqC.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/01/15 [No.134 贺岁片与春节档：从「甲方乙方」开启的中国商业电影横截面](https://www.ximalaya.com/sound/796341648) | [音频](https://tk.wavpub.com/WPDL_zxDAcCNxWCHZgDsfXdJsXKEvNuvepExwUDFfWYZXTQQRrbRRAYPfbkjbFt-e7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/01/22 [No.135 中国人千年理财史](https://www.ximalaya.com/sound/798515599) | [音频](https://tk.wavpub.com/WPDL_eTBgNupGBtbGfzrJNYMHCjmWTKVfzAEyDJjEqesMGAtNKnGVgZmLAAYqcE-85.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/01/19 [城市就是这样 08 | 苏州的两大新城之争](https://www.ximalaya.com/sound/797820365) | [音频](https://aod.cos.tx.xmcdn.com/storages/344a-audiofreehighqps/4F/FB/GKwRIRwLYtnMANCHwQNYCPqG.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
