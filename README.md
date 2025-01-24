@@ -7,13 +7,13 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/01/17 [过去一年，地球人究竟怎么了？从金钱视角，重新理解国际政治大事](https://www.xiaoyuzhoufm.com/episode/6789c1ff2d0847429809641e) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6789c1ff2d0847429809641e/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ljR5G8umQoOqDLbquepBPChYdFqC.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/01/24 [E175 财神到🧧做好财务规划，新的一年，财神会格外光顾你！](https://www.xiaoyuzhoufm.com/episode/679308cf247d51713cf76660) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/679308cf247d51713cf76660/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ltjuSN5pSl5OFcRjQK448ThEcosa.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/01/22 [No.135 中国人千年理财史](https://www.ximalaya.com/sound/798515599) | [音频](https://tk.wavpub.com/WPDL_eTBgNupGBtbGfzrJNYMHCjmWTKVfzAEyDJjEqesMGAtNKnGVgZmLAAYqcE-85.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/01/22 [旧番重听 | 如何为天灾买保险？](https://www.ximalaya.com/sound/798656393) | [音频](https://aod.cos.tx.xmcdn.com/storages/7017-audiofreehighqps/12/8F/GKwRIW4LZtCtAMLooANZtgu4.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/01/24 [商业小样18 | 科比去世后，耐克为什么还能拿他做广告？](https://www.ximalaya.com/sound/799031788) | [音频](https://aod.cos.tx.xmcdn.com/storages/8e58-audiofreehighqps/2B/82/GKwRIW4LaL3VADVOkANafTBU.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
