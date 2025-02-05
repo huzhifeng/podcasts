@@ -10,7 +10,7 @@
 - 2025/01/24 [E175 财神到🧧做好财务规划，新的一年，财神会格外光顾你！](https://www.xiaoyuzhoufm.com/episode/679308cf247d51713cf76660) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/679308cf247d51713cf76660/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ltjuSN5pSl5OFcRjQK448ThEcosa.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/01/22 [No.135 中国人千年理财史](https://www.ximalaya.com/sound/798515599) | [音频](https://tk.wavpub.com/WPDL_eTBgNupGBtbGfzrJNYMHCjmWTKVfzAEyDJjEqesMGAtNKnGVgZmLAAYqcE-85.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/02/05 [No.136 科龙往事（上）](https://www.ximalaya.com/sound/800902707) | [音频](https://tk.wavpub.com/WPDL_YgkTwJkQQShEdjUwANdMKSpdtKeSBaUzMZyJDRjkEHwgKgwvkUJTCUEteM-65.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/01/29 [旧番重听：学外语和验证码有什么关系？](https://www.ximalaya.com/sound/800527677) | [音频](https://aod.cos.tx.xmcdn.com/storages/0e2a-audiofreehighqps/CB/7B/GKwRIRwLcA8gAI-WhANdRgK1.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
