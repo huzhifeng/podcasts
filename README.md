@@ -13,7 +13,7 @@
 - 2025/02/05 [No.136 科龙往事（上）](https://www.ximalaya.com/sound/800902707) | [音频](https://tk.wavpub.com/WPDL_YgkTwJkQQShEdjUwANdMKSpdtKeSBaUzMZyJDRjkEHwgKgwvkUJTCUEteM-65.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/01/29 [旧番重听：学外语和验证码有什么关系？](https://www.ximalaya.com/sound/800527677) | [音频](https://aod.cos.tx.xmcdn.com/storages/0e2a-audiofreehighqps/CB/7B/GKwRIRwLcA8gAI-WhANdRgK1.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/02/05 [Vol.194 小历史 | 1956，购物中心诞生](https://www.ximalaya.com/sound/802340380) | [音频](https://aod.cos.tx.xmcdn.com/storages/adb3-audiofreehighqps/32/27/GKwRIDoLeU7mAQ8AmQNgtr99.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
