@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/01/24 [E175 财神到🧧做好财务规划，新的一年，财神会格外光顾你！](https://www.xiaoyuzhoufm.com/episode/679308cf247d51713cf76660) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/679308cf247d51713cf76660/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ltjuSN5pSl5OFcRjQK448ThEcosa.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/02/07 [E176 对话袁长庚：别让命运轻易得逞，你要活成这个世界的惊喜✨](https://www.xiaoyuzhoufm.com/episode/67a5a52cd74435e4a39da455) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67a5a52cd74435e4a39da455/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ltA_FDSAnxj50zcaIDpNFNmL1XR0.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/02/05 [No.136 科龙往事（上）](https://www.ximalaya.com/sound/800902707) | [音频](https://tk.wavpub.com/WPDL_YgkTwJkQQShEdjUwANdMKSpdtKeSBaUzMZyJDRjkEHwgKgwvkUJTCUEteM-65.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
