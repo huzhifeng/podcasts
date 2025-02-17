@@ -13,13 +13,10 @@
 - 2025/02/12 [No.137 DeepSeek 小传](https://www.ximalaya.com/sound/804890055) | [音频](https://tk.wavpub.com/WPDL_PXtcYwEraxhAWXVAFmyNDkKEQfVEmuFBeJsMyHJJFcnxgKraZkHqvmpBkY-24.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/02/12 [Vol.195 听完就会写港股IPO招股书（伪](https://www.ximalaya.com/sound/804993273) | [音频](https://aod.cos.tx.xmcdn.com/storages/8266-audiofreehighqps/C6/82/GKwRIRwLgowvAOxIfgNlxwxt.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/02/16 [商业小样19 | 上市公司的财年为什么不“对齐”？](https://www.ximalaya.com/sound/806034367) | [音频](https://aod.cos.tx.xmcdn.com/storages/8697-audiofreehighqps/9F/2A/GKwRIDoLh79pAD6VcgNoFKYf.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
-
-## 后互联网时代的乱弹
-- 2025/02/15 [第151期 新时代开源](https://hosting.wavpub.cn/pie/ep151/) | [音频](https://tk.wavpub.com/WPDL_pFhsAjEyCBjsXmHESrsCVcDYckbPmNSeSEZpcnYbhsdeMKvXgAhBYbKQAG-72.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2025/02/10 [EP92 19岁开始创业到YC，聊聊连续创业者Alex的那些故事（下）](https://www.xiaoyuzhoufm.com/episode/679f3d3f247d51713c46476d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/679f3d3f247d51713c46476d/media.xyzcdn.net/640ee2438be5d40013fe4a87/lqSTyj5tJLsfj6WLqjgEmvdIxHq4.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
