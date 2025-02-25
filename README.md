@@ -22,5 +22,5 @@
 - 2025/02/22 [第152期 人工智能时代](https://hosting.wavpub.cn/pie/ep152/) | [音频](https://tk.wavpub.com/WPDL_UmVRWqwsDSrPpRcvMsXjVfjhzvbwaRNrJBxaXAdqtpDegzWnraCeRspWsY-ca.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/02/18 [EP93 DeepSeek 又一个斯普特尼克时刻？感受科技，文化新力量的崭露头角](https://www.xiaoyuzhoufm.com/episode/67b4a74405a90dfd0d56bbf4) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/67b4a74405a90dfd0d56bbf4/media.xyzcdn.net/640ee2438be5d40013fe4a87/lpn2jGDcd9-21zzpbqf7vXlzusfC.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/02/24 [EP94 对话“一手撸算法，一手做视频”的知名UP主"朝发"- 每个人都应该公开表达？](https://www.xiaoyuzhoufm.com/episode/67bc6e1605a90dfd0d8decf1) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/67bc6e1605a90dfd0d8decf1/media.xyzcdn.net/640ee2438be5d40013fe4a87/ljgrbyGxTO1rh_j3znCLzOAJ4UTD.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
