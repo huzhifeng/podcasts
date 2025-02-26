@@ -10,7 +10,7 @@
 - 2025/02/21 [E178 对话艺术家邱志杰：自我不是一座未发现的矿，而是一座待建的塔](https://www.xiaoyuzhoufm.com/episode/67b7f6c705a90dfd0de0e56f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67b7f6c705a90dfd0de0e56f/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lsAP37pswFQEwsDea4bNq0-PVHgE.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/02/19 [No.138 科龙往事（下）](https://www.ximalaya.com/sound/806841252) | [音频](https://tk.wavpub.com/WPDL_uHjaknsCVaJXfkkpYZhufMCAHPPeNGCXnGETZgkcvjJszhWzcFhuFQhPEs-f1.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/02/26 [No.139 ️ 黑客前传：铁道模型、电子游戏、计算机与自由软件](https://www.ximalaya.com/sound/809246560) | [音频](https://tk.wavpub.com/WPDL_duZnqrwxThPkffjBdFpuarHLGVDKXanCyzVZDHWJULgVZxTRujdutEJnfD-b7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/02/23 [城市就是这样09 | “中国制造”，产自小地方](https://www.ximalaya.com/sound/808255140) | [音频](https://aod.cos.tx.xmcdn.com/storages/95e1-audiofreehighqps/77/D4/GKwRIasLkQwPAJdYNANsq4n7.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
