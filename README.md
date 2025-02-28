@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/02/21 [E178 对话艺术家邱志杰：自我不是一座未发现的矿，而是一座待建的塔](https://www.xiaoyuzhoufm.com/episode/67b7f6c705a90dfd0de0e56f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67b7f6c705a90dfd0de0e56f/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lsAP37pswFQEwsDea4bNq0-PVHgE.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/02/28 [E179 无需恐惧孤独，一个人老去也可以很幸福｜单身养老指南](https://www.xiaoyuzhoufm.com/episode/67c023c105a90dfd0d364cec) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67c023c105a90dfd0d364cec/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/llWJRutmsJdu-DaapSwCJQ3vuA_7.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/02/26 [No.139 ️ 黑客前传：铁道模型、电子游戏、计算机与自由软件](https://www.ximalaya.com/sound/809246560) | [音频](https://tk.wavpub.com/WPDL_duZnqrwxThPkffjBdFpuarHLGVDKXanCyzVZDHWJULgVZxTRujdutEJnfD-b7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
