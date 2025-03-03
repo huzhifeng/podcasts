@@ -13,7 +13,7 @@
 - 2025/02/26 [No.139 ️ 黑客前传：铁道模型、电子游戏、计算机与自由软件](https://www.ximalaya.com/sound/809246560) | [音频](https://tk.wavpub.com/WPDL_duZnqrwxThPkffjBdFpuarHLGVDKXanCyzVZDHWJULgVZxTRujdutEJnfD-b7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/02/26 [Vol.197 美国不降息，让日本人吃不起大米？](https://www.ximalaya.com/sound/809210770) | [音频](https://aod.cos.tx.xmcdn.com/storages/a4e2-audiofreehighqps/3A/00/GKwRIJILlLKDANDR1gNuef-t.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/03/02 [商业小样20 | 票房还是观影人次？](https://www.ximalaya.com/sound/810937610) | [音频](https://aod.cos.tx.xmcdn.com/storages/f8c4-audiofreehighqps/E0/E4/GKwRIJILmjGMAEVTUgNxiSJV.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
@@ -22,5 +22,5 @@
 - 2025/03/01 [特别篇 周年会③](https://hosting.wavpub.cn/pie/epsp3/) | [音频](https://tk.wavpub.com/WPDL_pgBNUFhjQGGmVjGVqcZzhrkfbpdtDZpCRVUCZbPVPbkXqvmGcFecXzFRkN-3b.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/02/24 [EP94 对话“一手撸算法，一手做视频”的知名UP主"朝发"- 每个人都应该公开表达？](https://www.xiaoyuzhoufm.com/episode/67bc6e1605a90dfd0d8decf1) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/67bc6e1605a90dfd0d8decf1/media.xyzcdn.net/640ee2438be5d40013fe4a87/ljgrbyGxTO1rh_j3znCLzOAJ4UTD.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/03/03 [EP95 对话字节 Trae 团队：探秘 AI IDE演进之路](https://www.xiaoyuzhoufm.com/episode/67c5744abf52a16cd1357d2d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/67c5744abf52a16cd1357d2d/media.xyzcdn.net/640ee2438be5d40013fe4a87/lj8nIV8bwkEij0FkGoXRmpzMlMX8.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
