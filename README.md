@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/03/07 [E180 你一生的财富](https://www.xiaoyuzhoufm.com/episode/67ca67e5e924d4525adf4ac8) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67ca67e5e924d4525adf4ac8/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ltOuZJo0QIPhJcNxzrAWnurInNOU.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/03/14 [E181 对话冯仑：做造风口的人](https://www.xiaoyuzhoufm.com/episode/67d3cc2c0766616acde5c506) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67d3cc2c0766616acde5c506/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/liT8NM3ghbxH53Z-bA53_CkxtxG0.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/03/12 [No.141 博世百年：动荡与废墟中进化出的有机体](https://www.ximalaya.com/sound/819730074) | [音频](https://tk.wavpub.com/WPDL_sjknvtaXsbhyDGYgSBYvrnUDxLHvfQwdHkTwUdTZPHvMUtZHNEMaMYnNGJ-0e.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
