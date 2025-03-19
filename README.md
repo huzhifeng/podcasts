@@ -10,7 +10,7 @@
 - 2025/03/14 [E181 对话冯仑：做造风口的人](https://www.xiaoyuzhoufm.com/episode/67d3cc2c0766616acde5c506) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67d3cc2c0766616acde5c506/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/liT8NM3ghbxH53Z-bA53_CkxtxG0.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/03/12 [No.141 博世百年：动荡与废墟中进化出的有机体](https://www.ximalaya.com/sound/819730074) | [音频](https://tk.wavpub.com/WPDL_sjknvtaXsbhyDGYgSBYvrnUDxLHvfQwdHkTwUdTZPHvMUtZHNEMaMYnNGJ-0e.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/03/19 [No.142 炸鸡汉堡风云录：中国西式快餐江湖三十来年](https://www.ximalaya.com/sound/822618999) | [音频](https://tk.wavpub.com/WPDL_cpekXPNYGBVEXZmcKYFbRzDnjKscgbJGFekRRWbnXbVshEaHWrjEwDjktF-c1.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/03/16 [商业小样21 | 富豪排行如何变成一门生意](https://www.ximalaya.com/sound/821495220) | [音频](https://aod.cos.tx.xmcdn.com/storages/4afb-audiofreehighqps/EF/05/GKwRIDoLrJEsAC-grgN_g88Q.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
