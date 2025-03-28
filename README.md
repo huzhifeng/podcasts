@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/03/21 [E182 打工 22 年后，我发现，原来休憩与奔跑一样重要](https://www.xiaoyuzhoufm.com/episode/67dbd420dd11f9c8c1ee6a67) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67dbd420dd11f9c8c1ee6a67/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lpRbBzqpkZusxplXFuRmf649tPCn.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/03/28 [E183 在概率的世界中，每个投资者都能找到适合自己的游戏｜中国大类资产投资 2024 年报上线](https://www.xiaoyuzhoufm.com/episode/67e66f398eecdbeb60b5fcec) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67e66f398eecdbeb60b5fcec/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lh_EeQ3jyRJY0-ugCAj8gMSXmDBN.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/03/26 [No.143 真实的爱迪生：1% 的灵感之外，剩下的 99% 是什么？](https://www.ximalaya.com/sound/826108676) | [音频](https://tk.wavpub.com/WPDL_HgGRvLvprRXDpLpvZBSgEQzkJYWcBMqCyajesQRPJUgAKxgUhWLaXFySnE-c7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
