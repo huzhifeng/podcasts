@@ -10,7 +10,7 @@
 - 2025/03/28 [E183 在概率的世界中，每个投资者都能找到适合自己的游戏｜中国大类资产投资 2024 年报上线](https://www.xiaoyuzhoufm.com/episode/67e66f398eecdbeb60b5fcec) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67e66f398eecdbeb60b5fcec/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lh_EeQ3jyRJY0-ugCAj8gMSXmDBN.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/03/26 [No.143 真实的爱迪生：1% 的灵感之外，剩下的 99% 是什么？](https://www.ximalaya.com/sound/826108676) | [音频](https://tk.wavpub.com/WPDL_HgGRvLvprRXDpLpvZBSgEQzkJYWcBMqCyajesQRPJUgAKxgUhWLaXFySnE-c7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/04/02 [No.144 国民小吃三巨头：沙县小吃、兰州拉面、黄焖鸡米饭](https://www.ximalaya.com/sound/830169735) | [音频](https://tk.wavpub.com/WPDL_aPknLdsWLrygCTYbAaDpbJxyCREUACruRnuMQKFvBuMhQwcqNZhHfsqHqC-9d.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/03/30 [商业小样23 | 今年的蓝莓为什么好吃又便宜?](https://www.ximalaya.com/sound/828985386) | [音频](https://aod.cos.tx.xmcdn.com/storages/9c0c-audiofreehighqps/CD/11/GKwRIaILvxQ2AE6X_gOLKtw5.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
