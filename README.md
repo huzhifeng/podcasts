@@ -13,7 +13,7 @@
 - 2025/04/02 [No.144 国民小吃三巨头：沙县小吃、兰州拉面、黄焖鸡米饭](https://www.ximalaya.com/sound/830169735) | [音频](https://tk.wavpub.com/WPDL_aPknLdsWLrygCTYbAaDpbJxyCREUACruRnuMQKFvBuMhQwcqNZhHfsqHqC-9d.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/03/30 [商业小样23 | 今年的蓝莓为什么好吃又便宜?](https://www.ximalaya.com/sound/828985386) | [音频](https://aod.cos.tx.xmcdn.com/storages/9c0c-audiofreehighqps/CD/11/GKwRIaILvxQ2AE6X_gOLKtw5.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/04/02 [Vol.202 还有人记得Skype吗？](https://www.ximalaya.com/sound/830696592) | [音频](https://aod.cos.tx.xmcdn.com/storages/c97c-audiofreehighqps/E7/B7/GKwRIRwLww9yANtGjAONyVha.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
