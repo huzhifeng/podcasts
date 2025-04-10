@@ -13,7 +13,7 @@
 - 2025/04/09 [No.145 亨利·福特：给世界装上轮胎，然后呢？](https://www.ximalaya.com/sound/834017259) | [音频](https://tk.wavpub.com/WPDL_NqPQHDTQafEPffWapnQRMqpRrfJWvWgUqnGudRbSMmQMGuQYwXXDEHpkbk-53.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/04/02 [Vol.202 还有人记得Skype吗？](https://www.ximalaya.com/sound/830696592) | [音频](https://aod.cos.tx.xmcdn.com/storages/c97c-audiofreehighqps/E7/B7/GKwRIRwLww9yANtGjAONyVha.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/04/09 [Vol.203 雅思也能闹破产？](https://www.ximalaya.com/sound/834276878) | [音频](https://aod.cos.tx.xmcdn.com/storages/5bf9-audiofreehighqps/48/8B/GKwRIW4LzFbWAMMSxAOTaFlV.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
@@ -22,5 +22,5 @@
 - 2025/04/05 [第157期 万国关税战](https://hosting.wavpub.cn/pie/ep157/) | [音频](https://tk.wavpub.com/WPDL_pbPaHWdrnfybvMQNUztwBCaHEpwCPyWPUZnXdcnXWLfVHpyHJbRykqurwM-8b.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/03/25 [EP97 对话常扬：LLM盛行时代，专门的OCR模型还有意义吗？](https://www.xiaoyuzhoufm.com/episode/67e2a97a243baa293728c47a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/67e2a97a243baa293728c47a/media.xyzcdn.net/640ee2438be5d40013fe4a87/lkOS2dKfZF1EzrGfyEe7xJ7iyejy.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/04/09 [EP98 对话Shawn：如何用一款晒太阳App，在健康赛道中脱颖而出？](https://www.xiaoyuzhoufm.com/episode/67f698cd623bc78c399a1ee8) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/67f698cd623bc78c399a1ee8/media.xyzcdn.net/640ee2438be5d40013fe4a87/lqngmkpFY2xZjI1IqyQwyLNiJFNA.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
