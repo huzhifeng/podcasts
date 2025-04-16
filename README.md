@@ -10,7 +10,7 @@
 - 2025/04/11 [E184 当关税战改变世界：我们要怎样理解未来的生活、投资以及经济秩序？](https://www.xiaoyuzhoufm.com/episode/67f8913759699d74dcfc0f04) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/67f8913759699d74dcfc0f04/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lji7ErvlA0IRDf88gN6ovotRj0J-.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/04/09 [No.145 亨利·福特：给世界装上轮胎，然后呢？](https://www.ximalaya.com/sound/834017259) | [音频](https://tk.wavpub.com/WPDL_NqPQHDTQafEPffWapnQRMqpRrfJWvWgUqnGudRbSMmQMGuQYwXXDEHpkbk-53.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/04/16 [No.146 米饭快餐王者更替：从真功夫到老乡鸡](https://www.ximalaya.com/sound/837140662) | [音频](https://tk.wavpub.com/WPDL_UutYRXXvahBEqaDdcJucBTrctXKNSDqjdBDxZkKsFtJwTdNQpUTCakUBPp-3e.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/04/13 [商业小样24 | 老楼为什么爱用蓝绿色的玻璃幕墙？](https://www.ximalaya.com/sound/836079644) | [音频](https://aod.cos.tx.xmcdn.com/storages/1b9d-audiofreehighqps/E1/2C/GKwRIRwL0YhdAGA5PAOWkiCz.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
