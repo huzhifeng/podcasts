@@ -13,7 +13,7 @@
 - 2025/04/16 [No.146 米饭快餐王者更替：从真功夫到老乡鸡](https://www.ximalaya.com/sound/837140662) | [音频](https://tk.wavpub.com/WPDL_UutYRXXvahBEqaDdcJucBTrctXKNSDqjdBDxZkKsFtJwTdNQpUTCakUBPp-3e.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/04/13 [商业小样24 | 老楼为什么爱用蓝绿色的玻璃幕墙？](https://www.ximalaya.com/sound/836079644) | [音频](https://aod.cos.tx.xmcdn.com/storages/1b9d-audiofreehighqps/E1/2C/GKwRIRwL0YhdAGA5PAOWkiCz.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/04/16 [Vol.204 小历史 | 1933，一家公司与纳粹签订契约](https://www.ximalaya.com/sound/837568451) | [音频](https://aod.cos.tx.xmcdn.com/storages/5282-audiofreehighqps/5E/4C/GKwRIJIL1YkUAXs62gOY0hQn.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2024/11/23 [生命中的压舱石](https://www.xiaoyuzhoufm.com/episode/67403d1d11045e78e5105c6f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/67403d1d11045e78e5105c6f/media.xyzcdn.net/lmERsWF4hFJGK9PjHGzOwQnbz-Ge.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
