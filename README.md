@@ -22,5 +22,5 @@
 - 2025/04/25 [第160期 智能体谁正宗](https://hosting.wavpub.cn/pie/ep160/) | [音频](https://tk.wavpub.com/WPDL_eAWztUKqKExMypPJCpZTPVaBBfXhbPqGmtFMWYTBUfWNnTKAYVycsWHzkR-03.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/04/20 [EP99 对话阿越：当程序员爱上威士忌酸，调酒笔记的诞生故事](https://www.xiaoyuzhoufm.com/episode/6804c7a6cdd692da157ef12d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6804c7a6cdd692da157ef12d/media.xyzcdn.net/640ee2438be5d40013fe4a87/litwMA1z6BIRXntH9tdmsOGs_D7P.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/04/28 [EP100 100期了！硬地骇客和你聊聊独立开发的酸甜苦辣](https://www.xiaoyuzhoufm.com/episode/680f7d0f7a449ae85839741d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/680f7d0f7a449ae85839741d/media.xyzcdn.net/640ee2438be5d40013fe4a87/llm1K7jg59hcLgslbMfgLlbBcXLT.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
