@@ -10,7 +10,7 @@
 - 2025/04/25 [E186 对话香帅：旧故事崩塌的时代，普通人如何找到新地图？](https://www.xiaoyuzhoufm.com/episode/680b1ade7a449ae85899d3f1) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/680b1ade7a449ae85899d3f1/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/loiyWO--kh2nrkkZtAadJgp4F5MM.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/04/23 [No.147 卖炸鸡就是卖自己：山德士上校与肯德基](https://www.ximalaya.com/sound/840736735) | [音频](https://tk.wavpub.com/WPDL_uKvhAjtQegvDTsuABSpRDQftzdYsStvdGPrmfjCjppEJByatcRJyuXDRRe-01.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/04/30 [No.148 饺子馄饨江湖混战：大娘吉祥](https://www.ximalaya.com/sound/843991633) | [音频](https://tk.wavpub.com/WPDL_EWTPwKcJsuNyVPumtCXRepEWRtpqPphVHAzdWfTBQdkRYNwjNYGXUXcHLB-d2.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/04/27 [商业小样25 | 一次性搞懂AUDI和奥迪的关系](https://www.ximalaya.com/sound/842066469) | [音频](https://aod.cos.tx.xmcdn.com/storages/09a5-audiofreehighqps/B8/35/GKwRIDoL4YPsAF-znAOgAUYL.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
