@@ -19,7 +19,7 @@
 - 2025/04/23 [在 flomo 5 周年时，聊聊那些真实的思考痕迹](https://www.xiaoyuzhoufm.com/episode/6808ee568aed253fa31ad089) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/6808ee568aed253fa31ad089/media.xyzcdn.net/6034daea97755b8fc9c66480/lktdTBajS9q7nBJqAlkwoiSjk6-w.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2025/04/25 [第160期 智能体谁正宗](https://hosting.wavpub.cn/pie/ep160/) | [音频](https://tk.wavpub.com/WPDL_eAWztUKqKExMypPJCpZTPVaBBfXhbPqGmtFMWYTBUfWNnTKAYVycsWHzkR-03.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2025/05/04 [第161期 AI时代的IDE战争](https://hosting.wavpub.cn/pie/ep161/) | [音频](https://tk.wavpub.com/WPDL_dJxKbxcfeZYdyKdYtmrRRrSWYXaEmcdLyGEjzTkeDxkYNuPrhdSNySLWsU-99.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2025/04/28 [EP100 100期了！硬地骇客和你聊聊独立开发的酸甜苦辣](https://www.xiaoyuzhoufm.com/episode/680f7d0f7a449ae85839741d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/680f7d0f7a449ae85839741d/media.xyzcdn.net/640ee2438be5d40013fe4a87/llm1K7jg59hcLgslbMfgLlbBcXLT.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
