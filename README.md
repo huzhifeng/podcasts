@@ -22,5 +22,5 @@
 - 2025/05/10 [第162期 中国军迷过节](https://hosting.wavpub.cn/pie/ep162/) | [音频](https://tk.wavpub.com/WPDL_xJpFGPuxLAKxNsdYFJAkZALmjWuYvGNmsSdzAbtsaLkrDRYTYWerHXcASt-93.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/04/28 [EP100 100期了！硬地骇客和你聊聊独立开发的酸甜苦辣](https://www.xiaoyuzhoufm.com/episode/680f7d0f7a449ae85839741d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/680f7d0f7a449ae85839741d/media.xyzcdn.net/640ee2438be5d40013fe4a87/llm1K7jg59hcLgslbMfgLlbBcXLT.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/05/12 [EP101 对话 Simon：AI 创业者的第一项基本功是把账算明白](https://www.xiaoyuzhoufm.com/episode/6821c79bb7c8a9962cb20cb8) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6821c79bb7c8a9962cb20cb8/media.xyzcdn.net/640ee2438be5d40013fe4a87/lhrRhFslND1z9cUu2VKUXbb5pVjX.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
