@@ -10,7 +10,7 @@
 - 2025/05/09 [E187 豪宅卖脱销，普房没人要，冰火两重天的2025房市，怎样买/卖房不踩坑？](https://www.xiaoyuzhoufm.com/episode/681d6a9db7c8a9962c2d77d0) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/681d6a9db7c8a9962c2d77d0/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ls8yY2B9_KAlCpkGAa3FlSU-9Hyp.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/05/07 [No.149 麦门传奇：快餐教父创业史](https://www.ximalaya.com/sound/847724275) | [音频](https://tk.wavpub.com/WPDL_GKWRuwnxVVtHxpgSkJNEjaEpsxzfXtsBYFGNRNDpxABtPBcumrwsbxXtwK-8d.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/05/14 [No.150 一碗面条起高楼：中国连锁面馆九巨头](https://www.ximalaya.com/sound/852563679) | [音频](https://tk.wavpub.com/WPDL_ZZzvrsEGGqgPnNACNHtXRLRVhcsPgpYFFWZSXKMNCYCNuHHfkWESqWZvxJ-98.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/05/07 [Vol.206 合资车企这40年](https://www.ximalaya.com/sound/848202227) | [音频](https://aod.cos.tx.xmcdn.com/storages/7833-audiofreehighqps/BC/86/GKwRIaIL8S1LAOvbVgOpFKfc.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
