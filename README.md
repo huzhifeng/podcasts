@@ -22,5 +22,5 @@
 - 2025/05/16 [第163期 思考还是不思考](https://hosting.wavpub.cn/pie/ep163/) | [音频](https://tk.wavpub.com/WPDL_BGGUtBDttBudfrkvcBaMTjREMXaqvAyBXAPXxbNLQzqkewbtUNSPntzcsX-61.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/05/12 [EP101 对话 Simon：AI 创业者的第一项基本功是把账算明白](https://www.xiaoyuzhoufm.com/episode/6821c79bb7c8a9962cb20cb8) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6821c79bb7c8a9962cb20cb8/media.xyzcdn.net/640ee2438be5d40013fe4a87/lhrRhFslND1z9cUu2VKUXbb5pVjX.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/05/19 [EP102 对话 Una：全球头部思维导图 App Store 运营负责人亲授 ASO 实战经验](https://www.xiaoyuzhoufm.com/episode/682b26c8457b22ce0d793267) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/682b26c8457b22ce0d793267/media.xyzcdn.net/640ee2438be5d40013fe4a87/lsCdLNOGYhIOhre091lwi_AySHUg.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
