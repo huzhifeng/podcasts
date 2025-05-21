@@ -10,7 +10,7 @@
 - 2025/05/16 [E188 虚假的百年老店：一家餐厅开100年；真实的百年老店：开30家3.3年小店🐶餐饮创业避坑指南](https://www.xiaoyuzhoufm.com/episode/6826b3231ced30a231982cd9) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6826b3231ced30a231982cd9/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ljJhKxe-yptoNJv0GtsvthXDBxDx.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/05/14 [No.150 一碗面条起高楼：中国连锁面馆九巨头](https://www.ximalaya.com/sound/852563679) | [音频](https://tk.wavpub.com/WPDL_ZZzvrsEGGqgPnNACNHtXRLRVhcsPgpYFFWZSXKMNCYCNuHHfkWESqWZvxJ-98.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/05/21 [No.151 ☕️ 星巴克：卖空间为什么是门值钱生意？](https://www.ximalaya.com/sound/856220098) | [音频](https://tk.wavpub.com/WPDL_EAHUqqsfUrkFhVSgqjBdQppBBshVYpqZfmyWeLDqNhaChqPXkQuUPUTyar-77.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/05/18 [商业小样26 | 为什么要买一杯冰？](https://www.ximalaya.com/sound/854892978) | [音频](https://aod.cos.tx.xmcdn.com/storages/ce3c-audiofreehighqps/CF/43/GKwRIW4L_7y5AFgPpAOyNK5v.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
