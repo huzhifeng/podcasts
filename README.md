@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/05/16 [E188 虚假的百年老店：一家餐厅开100年；真实的百年老店：开30家3.3年小店🐶餐饮创业避坑指南](https://www.xiaoyuzhoufm.com/episode/6826b3231ced30a231982cd9) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6826b3231ced30a231982cd9/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ljJhKxe-yptoNJv0GtsvthXDBxDx.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/05/23 [E189 聊聊段永平，以及你想活出怎样的人生](https://www.xiaoyuzhoufm.com/episode/682fdf12fcbc2e206b5021ac) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/682fdf12fcbc2e206b5021ac/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lnXXD5NECtZcoYEe7LgkwKhwXX3b.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/05/21 [No.151 ☕️ 星巴克：卖空间为什么是门值钱生意？](https://www.ximalaya.com/sound/856220098) | [音频](https://tk.wavpub.com/WPDL_EAHUqqsfUrkFhVSgqjBdQppBBshVYpqZfmyWeLDqNhaChqPXkQuUPUTyar-77.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
