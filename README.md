@@ -19,7 +19,7 @@
 - 2025/04/23 [在 flomo 5 周年时，聊聊那些真实的思考痕迹](https://www.xiaoyuzhoufm.com/episode/6808ee568aed253fa31ad089) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/6808ee568aed253fa31ad089/media.xyzcdn.net/6034daea97755b8fc9c66480/lktdTBajS9q7nBJqAlkwoiSjk6-w.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2025/05/16 [第163期 思考还是不思考](https://hosting.wavpub.cn/pie/ep163/) | [音频](https://tk.wavpub.com/WPDL_BGGUtBDttBudfrkvcBaMTjREMXaqvAyBXAPXxbNLQzqkewbtUNSPntzcsX-61.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2025/05/24 [第164期 Google回来了](https://hosting.wavpub.cn/pie/ep164/) | [音频](https://tk.wavpub.com/WPDL_medLKJUBfmkNuEpaaecewJXBknbjqRhFGtZWKbzuQsZWVdNwsZxctLpzsQ-8d.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2025/05/19 [EP102 对话 Una：全球头部思维导图 App Store 运营负责人亲授 ASO 实战经验](https://www.xiaoyuzhoufm.com/episode/682b26c8457b22ce0d793267) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/682b26c8457b22ce0d793267/media.xyzcdn.net/640ee2438be5d40013fe4a87/lsCdLNOGYhIOhre091lwi_AySHUg.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
