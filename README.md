@@ -13,7 +13,7 @@
 - 2025/05/21 [No.151 ☕️ 星巴克：卖空间为什么是门值钱生意？](https://www.ximalaya.com/sound/856220098) | [音频](https://tk.wavpub.com/WPDL_EAHUqqsfUrkFhVSgqjBdQppBBshVYpqZfmyWeLDqNhaChqPXkQuUPUTyar-77.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/05/21 [Vol.208 超市里的食物为什么都有塑料包装？](https://www.ximalaya.com/sound/856494966) | [音频](https://aod.cos.tx.xmcdn.com/storages/0804-audiofreehighqps/D6/8F/GKwRIasMA6SJAP8rjwO0nvlz.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/05/25 [绿点小样 | 3M公司：能赚钱的可持续项目才可持续](https://www.ximalaya.com/sound/858435006) | [音频](https://aod.cos.tx.xmcdn.com/storages/233a-audiofreehighqps/EA/99/GKwRIRwMCOzZAFQIzgO3tgwK.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/04/23 [在 flomo 5 周年时，聊聊那些真实的思考痕迹](https://www.xiaoyuzhoufm.com/episode/6808ee568aed253fa31ad089) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/6808ee568aed253fa31ad089/media.xyzcdn.net/6034daea97755b8fc9c66480/lktdTBajS9q7nBJqAlkwoiSjk6-w.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
