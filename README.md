@@ -1,7 +1,7 @@
 # 播客
 
 ## 无人知晓
-- 2025/05/06 [E39 孟岩对话重轻：创作过于重要，以至于不能认真对待](https://www.xiaoyuzhoufm.com/episode/6819986247ebeede7efbe7dd) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/6819986247ebeede7efbe7dd/media.xyzcdn.net/611719d3cb0b82e1df0ad29e/lu-7E5C25purP6K5em8vUjZ9L_lv.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
+- 2025/05/27 [E40 够与多](https://www.xiaoyuzhoufm.com/episode/682ecd8b457b22ce0df770c2) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/682ecd8b457b22ce0df770c2/media.xyzcdn.net/611719d3cb0b82e1df0ad29e/lqx1UHbtbLPSGlAcSjWewCS8fYg0.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
 
 ## 纵横四海
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
