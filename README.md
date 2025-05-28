@@ -10,7 +10,7 @@
 - 2025/05/23 [E189 聊聊段永平，以及你想活出怎样的人生](https://www.xiaoyuzhoufm.com/episode/682fdf12fcbc2e206b5021ac) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/682fdf12fcbc2e206b5021ac/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lnXXD5NECtZcoYEe7LgkwKhwXX3b.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/05/21 [No.151 ☕️ 星巴克：卖空间为什么是门值钱生意？](https://www.ximalaya.com/sound/856220098) | [音频](https://tk.wavpub.com/WPDL_EAHUqqsfUrkFhVSgqjBdQppBBshVYpqZfmyWeLDqNhaChqPXkQuUPUTyar-77.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/05/28 [No.152 麻辣烫双雄VS冒菜群英](https://www.ximalaya.com/sound/859807681) | [音频](https://tk.wavpub.com/WPDL_TmpwPMBjPMVdeewuDpTzCtJgHNaCDknqNZYGfZDQaTXwTHWZkfuUUeQGWn-a9.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/05/25 [绿点小样 | 3M公司：能赚钱的可持续项目才可持续](https://www.ximalaya.com/sound/858435006) | [音频](https://aod.cos.tx.xmcdn.com/storages/233a-audiofreehighqps/EA/99/GKwRIRwMCOzZAFQIzgO3tgwK.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
