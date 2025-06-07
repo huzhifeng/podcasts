@@ -19,7 +19,7 @@
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2025/05/30 [第165期 赛博国际主义](https://hosting.wavpub.cn/pie/ep165/) | [音频](https://tk.wavpub.com/WPDL_DWcMLjSwhMLZsAzcaaRKrZnSwbuVgdURACwaADfjmgQGXmzLHzDkdUnxtT-0b.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2025/06/07 [第166期 读读AI趋势报告](https://hosting.wavpub.cn/pie/ep166/) | [音频](https://tk.wavpub.com/WPDL_nPNXrDUnsfTdDLVwGujXQGaCBDMDgFFbcBYVNECxeNZvUnumLDNYCdaYza-b7.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2025/06/03 [Vibe Coding：AI 全栈开发产品是“气氛组”还是“真香”？](https://www.xiaoyuzhoufm.com/episode/683f053331215eb50623804e) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/683f053331215eb50623804e/media.xyzcdn.net/640ee2438be5d40013fe4a87/loe7B1JezeEdgI90REvIMYRHSNZG.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
