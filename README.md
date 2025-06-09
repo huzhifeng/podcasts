@@ -13,7 +13,7 @@
 - 2025/06/04 [No.153 「史前」科技巨头四通与中关村教父 | 中国互联网故事1](https://www.ximalaya.com/sound/863119335) | [音频](https://tk.wavpub.com/WPDL_jTdMHjSFWTkKmKfdLnQArWBedQYHahsHCAHckebEpFFyugNgePazXjyxYf-25.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/06/04 [Vol.210 学完三丽鸥，我们还是不太懂泡泡玛特](https://www.ximalaya.com/sound/864103906) | [音频](https://aod.cos.tx.xmcdn.com/storages/9fee-audiofreehighqps/EC/4C/GKwRIJEMFh_cAV9OhgO_4qTW.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/06/08 [城市就是这样11 | 蹿升、遗珠和中小城市的活力：2025中国城市魅力排行榜解读](https://www.ximalaya.com/sound/866245960) | [音频](https://aod.cos.tx.xmcdn.com/storages/de20-audiofreehighqps/E3/AB/GKwRIRwMG2wNANCjmwPDKkAp.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
@@ -22,5 +22,5 @@
 - 2025/06/07 [第166期 读读AI趋势报告](https://hosting.wavpub.cn/pie/ep166/) | [音频](https://tk.wavpub.com/WPDL_nPNXrDUnsfTdDLVwGujXQGaCBDMDgFFbcBYVNECxeNZvUnumLDNYCdaYza-b7.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/06/03 [Vibe Coding：AI 全栈开发产品是“气氛组”还是“真香”？](https://www.xiaoyuzhoufm.com/episode/683f053331215eb50623804e) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/683f053331215eb50623804e/media.xyzcdn.net/640ee2438be5d40013fe4a87/loe7B1JezeEdgI90REvIMYRHSNZG.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/06/03 [EP103 Vibe Coding：AI 全栈开发产品是“气氛组”还是“真香”？](https://www.xiaoyuzhoufm.com/episode/683f053331215eb50623804e) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/683f053331215eb50623804e/media.xyzcdn.net/640ee2438be5d40013fe4a87/loe7B1JezeEdgI90REvIMYRHSNZG.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
