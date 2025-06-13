@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/06/06 [E191 向传统经济学宣战！用非强者视角打开世界，重新理解我们的生活、投资以及经济秩序](https://www.xiaoyuzhoufm.com/episode/68427ace79e285b9b882bc61) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68427ace79e285b9b882bc61/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lvo1vnUNlwUh1QKiNJElmxkIRaVk.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/06/13 [E192 我们真正不了解的可能不是 AI ，而是我们生活的这片广阔天地🏔️](https://www.xiaoyuzhoufm.com/episode/684b8f83574f065721e6a775) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/684b8f83574f065721e6a775/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lsKlH0FoIWriizRYy81h0gJTPi0K.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/06/11 [No.154 中国火锅前传](https://www.ximalaya.com/sound/866746629) | [音频](https://tk.wavpub.com/WPDL_AwKbQpRhzkfpLYmKgvnSCZmxgfwuzsnVHtknHedrSkTRECkJkFYUWDfKDJ-c7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
