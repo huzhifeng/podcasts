@@ -22,5 +22,5 @@
 - 2025/06/14 [第167期 从高考迈向人生巅峰](https://hosting.wavpub.cn/pie/ep167/) | [音频](https://tk.wavpub.com/WPDL_MRxNUSurJSkNbDkBxCpHsRyccPEZDzYMWKVgWcEWFtZqCmaNymsvZCmcWV-37.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/06/09 [EP104 继续聊 Vibe Coding 在复杂项目、项目维护中的那些事以及AI是否能取代程序员？](https://www.xiaoyuzhoufm.com/episode/6846c26779e285b9b8081905) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6846c26779e285b9b8081905/media.xyzcdn.net/640ee2438be5d40013fe4a87/lkv5_tOYlKtxIcvipJ4ih-_mgZP3.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/06/16 [EP105 你的想象力和行动力，正在限制你通过AI创作搞钱](https://www.xiaoyuzhoufm.com/episode/6850180f2a38b4d979f2a318) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6850180f2a38b4d979f2a318/media.xyzcdn.net/640ee2438be5d40013fe4a87/lmUJmzVEajjhJCa2TpfrYXAmrM4T.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
