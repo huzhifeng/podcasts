@@ -10,7 +10,7 @@
 - 2025/06/13 [E192 我们真正不了解的可能不是 AI ，而是我们生活的这片广阔天地🏔️](https://www.xiaoyuzhoufm.com/episode/684b8f83574f065721e6a775) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/684b8f83574f065721e6a775/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lsKlH0FoIWriizRYy81h0gJTPi0K.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/06/11 [No.154 中国火锅前传](https://www.ximalaya.com/sound/866746629) | [音频](https://tk.wavpub.com/WPDL_AwKbQpRhzkfpLYmKgvnSCZmxgfwuzsnVHtknHedrSkTRECkJkFYUWDfKDJ-c7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/06/18 [No.155 中国接入世界：1994 | 中国互联网故事2](https://www.ximalaya.com/sound/871428963) | [音频](https://tk.wavpub.com/WPDL_TepZJKFNRwHuWnWsznsgJKWKwESqzrXYgMKGtbJwKkBmhnnzcxhKsLXGSS-3b.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/06/11 [Vol.211 没有利息，怎么搞金融？](https://www.ximalaya.com/sound/867984425) | [音频](https://aod.cos.tx.xmcdn.com/storages/94b6-audiofreehighqps/B7/63/GKwRIJEMH1orAT-BhAPFrx2d.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
