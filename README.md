@@ -19,7 +19,7 @@
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2025/06/14 [第167期 从高考迈向人生巅峰](https://hosting.wavpub.cn/pie/ep167/) | [音频](https://tk.wavpub.com/WPDL_MRxNUSurJSkNbDkBxCpHsRyccPEZDzYMWKVgWcEWFtZqCmaNymsvZCmcWV-37.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2025/06/21 [第168期 怎么正确读新闻](https://hosting.wavpub.cn/pie/ep168/) | [音频](https://tk.wavpub.com/WPDL_ZzXAJqNkLavTMQnJhyANSNXeCkKpGffGQgRBhcwgjbPrPvePevJFugyNNx-9e.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2025/06/16 [EP105 你的想象力和行动力，正在限制你通过AI创作搞钱](https://www.xiaoyuzhoufm.com/episode/6850180f2a38b4d979f2a318) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6850180f2a38b4d979f2a318/media.xyzcdn.net/640ee2438be5d40013fe4a87/lmUJmzVEajjhJCa2TpfrYXAmrM4T.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
