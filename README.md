@@ -10,7 +10,7 @@
 - 2025/06/20 [E193 和汪天凡一起畅想：未来会出现 1 人独角兽公司吗？🦄](https://www.xiaoyuzhoufm.com/episode/6854d5682a38b4d97996e981) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6854d5682a38b4d97996e981/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lualfZmaght6vNwYXXsZp4OlEPPz.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/06/18 [No.155 中国接入世界：1994 | 中国互联网故事2](https://www.ximalaya.com/sound/871428963) | [音频](https://tk.wavpub.com/WPDL_TepZJKFNRwHuWnWsznsgJKWKwESqzrXYgMKGtbJwKkBmhnnzcxhKsLXGSS-3b.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/06/25 [No.156 中国火锅正传](https://www.ximalaya.com/sound/876245347) | [音频](https://tk.wavpub.com/WPDL_VZUYwueffdRkHQmwkFanCjFEqhssThHJGkVKpTfAEQaJThMAkMbHfSdzXG-51.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/06/22 [城市就是这样12 | 苏超背后的江苏：散装但最强](https://www.ximalaya.com/sound/874685023) | [音频](https://aod.cos.tx.xmcdn.com/storages/7906-audiofreehighqps/FA/B0/GKwRIasMLl_hAP5iYQPPd_lD.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
@@ -22,5 +22,5 @@
 - 2025/06/21 [第168期 怎么正确读新闻](https://hosting.wavpub.cn/pie/ep168/) | [音频](https://tk.wavpub.com/WPDL_ZzXAJqNkLavTMQnJhyANSNXeCkKpGffGQgRBhcwgjbPrPvePevJFugyNNx-9e.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/06/16 [EP105 你的想象力和行动力，正在限制你通过AI创作搞钱](https://www.xiaoyuzhoufm.com/episode/6850180f2a38b4d979f2a318) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6850180f2a38b4d979f2a318/media.xyzcdn.net/640ee2438be5d40013fe4a87/lmUJmzVEajjhJCa2TpfrYXAmrM4T.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/06/24 [EP106 5万Star的Alist偷偷卖了？开源圈炸了！](https://www.xiaoyuzhoufm.com/episode/685ab6b32a38b4d979552ce2) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/685ab6b32a38b4d979552ce2/media.xyzcdn.net/640ee2438be5d40013fe4a87/lgs5AZPcqPVnLO8uKv51XbHNzycY.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
