@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/06/20 [E193 和汪天凡一起畅想：未来会出现 1 人独角兽公司吗？🦄](https://www.xiaoyuzhoufm.com/episode/6854d5682a38b4d97996e981) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6854d5682a38b4d97996e981/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lualfZmaght6vNwYXXsZp4OlEPPz.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/06/27 [E194 病人问五种疗法，结果是五个骗子：算法时代的医学科普怎么就这么难？](https://www.xiaoyuzhoufm.com/episode/685e2d00bef90978ec27b330) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/685e2d00bef90978ec27b330/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lm5-M5T5ju2wV1emvtC0ZwvPVAut.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/06/25 [No.156 中国火锅正传](https://www.ximalaya.com/sound/876245347) | [音频](https://tk.wavpub.com/WPDL_VZUYwueffdRkHQmwkFanCjFEqhssThHJGkVKpTfAEQaJThMAkMbHfSdzXG-51.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
