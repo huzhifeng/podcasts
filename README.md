@@ -13,7 +13,7 @@
 - 2025/06/25 [No.156 中国火锅正传](https://www.ximalaya.com/sound/876245347) | [音频](https://tk.wavpub.com/WPDL_VZUYwueffdRkHQmwkFanCjFEqhssThHJGkVKpTfAEQaJThMAkMbHfSdzXG-51.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/06/25 [Vol.213 中国的二手车市场为什么很难做大做强？](https://www.ximalaya.com/sound/876594337) | [音频](https://aod.cos.tx.xmcdn.com/storages/8df5-audiofreehighqps/73/DA/GKwRIaIMMdNLAUg2mgPRx67i.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/06/29 [商业小样27 | 稀土磁铁技术的中美往事](https://www.ximalaya.com/sound/878798527) | [音频](https://aod.cos.tx.xmcdn.com/storages/4d24-audiofreehighqps/F4/B6/GKwRIW4MNxfMAD0VmQPVPesK.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
