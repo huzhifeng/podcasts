@@ -7,10 +7,10 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/06/27 [E194 病人问五种疗法，结果是五个骗子：算法时代的医学科普怎么就这么难？](https://www.xiaoyuzhoufm.com/episode/685e2d00bef90978ec27b330) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/685e2d00bef90978ec27b330/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lm5-M5T5ju2wV1emvtC0ZwvPVAut.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/07/02 [SP00 在不确定的时代，寻找穿越周期的8种方式｜我们的首档付费专题来了！](https://www.xiaoyuzhoufm.com/episode/6864cf9493fd2d72b81e8e65) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6864cf9493fd2d72b81e8e65/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ljKBnqJodbttRYsPOUTzW0-VOZFZ.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/06/25 [No.156 中国火锅正传](https://www.ximalaya.com/sound/876245347) | [音频](https://tk.wavpub.com/WPDL_VZUYwueffdRkHQmwkFanCjFEqhssThHJGkVKpTfAEQaJThMAkMbHfSdzXG-51.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/07/02 [No.157 搜狐张朝阳：看尽千帆过，笔下一方圆 | 中国互联网故事3](https://www.ximalaya.com/sound/880222294) | [音频](https://tk.wavpub.com/WPDL_yMGUUSPYSMArUdSCKfRmKHtGHBrpfnGZtBqcZCKEyxgYtuUndrePLngFAw-ac.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/06/29 [商业小样27 | 稀土磁铁技术的中美往事](https://www.ximalaya.com/sound/878798527) | [音频](https://aod.cos.tx.xmcdn.com/storages/4d24-audiofreehighqps/F4/B6/GKwRIW4MNxfMAD0VmQPVPesK.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
