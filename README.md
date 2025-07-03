@@ -13,7 +13,7 @@
 - 2025/07/02 [No.157 搜狐张朝阳：看尽千帆过，笔下一方圆 | 中国互联网故事3](https://www.ximalaya.com/sound/880222294) | [音频](https://tk.wavpub.com/WPDL_yMGUUSPYSMArUdSCKfRmKHtGHBrpfnGZtBqcZCKEyxgYtuUndrePLngFAw-ac.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/06/29 [商业小样27 | 稀土磁铁技术的中美往事](https://www.ximalaya.com/sound/878798527) | [音频](https://aod.cos.tx.xmcdn.com/storages/4d24-audiofreehighqps/F4/B6/GKwRIW4MNxfMAD0VmQPVPesK.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/07/02 [Vol.214 芬太尼究竟是什么问题？](https://www.ximalaya.com/sound/880245874) | [音频](https://aod.cos.tx.xmcdn.com/storages/3450-audiofreehighqps/62/80/GKwRIMAMOkl7AR18OwPXRc59.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
