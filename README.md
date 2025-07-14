@@ -13,7 +13,7 @@
 - 2025/07/09 [No.158 中国烧烤烟火燎原](https://www.ximalaya.com/sound/879789921) | [音频](https://tk.wavpub.com/WPDL_ZyhGWCVrbRqJzdgERSDJPEQpJRQxQVcstqkknHctZtnhLehSNwedamwrch-78.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/07/09 [Vol.215 小历史 | 1924，“太阳神垄断联盟”诞生](https://www.ximalaya.com/sound/884771445) | [音频](https://aod.cos.tx.xmcdn.com/storages/628a-audiofreehighqps/B0/C3/GKwRIDoMRE8kAS10XAPeD8fn.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/07/13 [商业小样28 | 霸王茶姬的“同店销售增长率”为何剧烈波动？](https://www.ximalaya.com/sound/887060183) | [音频](https://aod.cos.tx.xmcdn.com/storages/0f85-audiofreehighqps/79/FE/GKwRIasMSY_4AGpRrgPhVWEJ.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
