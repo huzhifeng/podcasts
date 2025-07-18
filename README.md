@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/07/11 [E195 对话半佛仙人：世上无难事，只要肯放弃（地球online🎮非典型通关秘籍）](https://www.xiaoyuzhoufm.com/episode/687085cb93fd2d72b8a01875) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/687085cb93fd2d72b8a01875/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lsIW_R7L5HP3Pj8tsyHVCDhOhl6Q.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/07/18 [E196 对话曹丰泽：只要不饿死，人生没有必修课](https://www.xiaoyuzhoufm.com/episode/687893e0a12f9ff06a98a597) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/687893e0a12f9ff06a98a597/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ls_H_O7Kt-7euS0WzYHUB9HTTt9r.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/07/17 [番外 09：半拿铁开启“封神篇”，先来一期尝尝鲜](https://www.ximalaya.com/sound/888603623) | [音频](https://tk.wavpub.com/WPDL_XquWphqJBWFdmPZZfjPERZLwZqFVmupuDTNjwmbmHDdPuKMjJWbuHPzGEM-cc.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
