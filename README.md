@@ -13,7 +13,7 @@
 - 2025/07/30 [No.161 从新浪到微博：草根时代 16 年 | 中国互联网故事5](https://www.ximalaya.com/sound/893655782) | [音频](https://tk.wavpub.com/WPDL_ckERkUzwMtqKSvyTXqDXRSByeVcgRSVYfrrWfNVxbUQRTtsSDwpzNZKnpa-6d.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/07/23 [Vol.217 玻尿酸和胶原蛋白为什么要打起来？](https://www.ximalaya.com/sound/891146955) | [音频](https://aod.cos.tx.xmcdn.com/storages/a6fc-audiofreehighqps/EC/C0/GKwRIasMVrCiAPu-5gPof1P9.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/07/30 [Vol.218 F1的美式大改造](https://www.ximalaya.com/sound/893822137) | [音频](https://aod.cos.tx.xmcdn.com/storages/bbbf-audiofreehighqps/C2/F8/GKwRIRwMX-pKAUnHewPtbx5h.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
