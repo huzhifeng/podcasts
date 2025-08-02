@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/07/25 [E197 怦然心动！那些让生活更轻松的无痛理财魔法🪄](https://www.xiaoyuzhoufm.com/episode/68832bc9a12f9ff06af7c835) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68832bc9a12f9ff06af7c835/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lnGf_gmJiN677Hw6QrURnf-tjl73.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/08/01 [E198 对话少楠：那些全无必要却仍然想做好的事情，或许就是你这一生的母题](https://www.xiaoyuzhoufm.com/episode/688c67368e06fe8de7ca55f8) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/688c67368e06fe8de7ca55f8/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/liyfMckmK-QfzirgSggzufNqS_B_.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/07/30 [No.161 从新浪到微博：草根时代 16 年 | 中国互联网故事5](https://www.ximalaya.com/sound/893655782) | [音频](https://tk.wavpub.com/WPDL_ckERkUzwMtqKSvyTXqDXRSByeVcgRSVYfrrWfNVxbUQRTtsSDwpzNZKnpa-6d.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
