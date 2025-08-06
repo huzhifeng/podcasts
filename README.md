@@ -7,10 +7,10 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/08/01 [E198 对话少楠：那些全无必要却仍然想做好的事情，或许就是你这一生的母题](https://www.xiaoyuzhoufm.com/episode/688c67368e06fe8de7ca55f8) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/688c67368e06fe8de7ca55f8/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/liyfMckmK-QfzirgSggzufNqS_B_.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/08/06 [SP04 斯坦利·德鲁肯米勒：索罗斯背后的操盘手，30年不败的宏观投资之神](https://www.xiaoyuzhoufm.com/episode/6892ff9a638b01587937b665) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6892ff9a638b01587937b665/media.xyzcdn.net/FqDj-gHkFILQrRcpREsEcXt06tPG.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/07/30 [No.161 从新浪到微博：草根时代 16 年 | 中国互联网故事5](https://www.ximalaya.com/sound/893655782) | [音频](https://tk.wavpub.com/WPDL_ckERkUzwMtqKSvyTXqDXRSByeVcgRSVYfrrWfNVxbUQRTtsSDwpzNZKnpa-6d.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/08/06 [No.162 百度的上半场：从超链分析到百度贴吧 | 中国互联网故事6](https://www.ximalaya.com/sound/896318036) | [音频](https://tk.wavpub.com/WPDL_ayhPQAHfDBUXFstNhQybhuFPWhmVsYNDxJnZcZwccjfgKTgxXreMqKKReh-3d.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/08/03 [商业小样29 | 高端月子中心这么贵，为什么赚不到钱？](https://www.ximalaya.com/sound/895276559) | [音频](https://aod.cos.tx.xmcdn.com/storages/1f19-audiofreehighqps/8D/64/GKwRIRwMZS1xAGsDXAPwPKH8.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
