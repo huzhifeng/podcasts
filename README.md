@@ -13,7 +13,7 @@
 - 2025/08/06 [No.162 百度的上半场：从超链分析到百度贴吧 | 中国互联网故事6](https://www.ximalaya.com/sound/896318036) | [音频](https://tk.wavpub.com/WPDL_ayhPQAHfDBUXFstNhQybhuFPWhmVsYNDxJnZcZwccjfgKTgxXreMqKKReh-3d.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/08/03 [商业小样29 | 高端月子中心这么贵，为什么赚不到钱？](https://www.ximalaya.com/sound/895276559) | [音频](https://aod.cos.tx.xmcdn.com/storages/1f19-audiofreehighqps/8D/64/GKwRIRwMZS1xAGsDXAPwPKH8.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/08/06 [Vol.219 新世界的债务危机，该由谁负责？](https://www.ximalaya.com/sound/896472169) | [音频](https://aod.cos.tx.xmcdn.com/storages/c8db-audiofreehighqps/4F/80/GKwRIaIMaS77Aa0WgAPyjgra.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
@@ -22,5 +22,5 @@
 - 2025/08/03 [第174期 敬畏历史方有未来](https://hosting.wavpub.cn/pie/ep174/) | [音频](https://tk.wavpub.com/WPDL_wEnjchfJrKDrvRKMwEgMrGrmuBUMJKMswJdtTxhZVfnbsyAvfrxxuEmVfc-7e.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/07/24 [EP109 抱抱窝复盘：一个耗时16个月、投资45万的AI社交应用的 “完美失败”](https://www.xiaoyuzhoufm.com/episode/68826bd5a9dec9250006210f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/68826bd5a9dec9250006210f/media.xyzcdn.net/640ee2438be5d40013fe4a87/lr3idEHqffEEMFQQISUS2ZFpI-OI.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/08/06 [EP110 对话 Saga：红海市场的破局指南 — 你的用户不在多，在于“付费密度”有多高](https://www.xiaoyuzhoufm.com/episode/6893a2ae638b01587952b3cf) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6893a2ae638b01587952b3cf/media.xyzcdn.net/640ee2438be5d40013fe4a87/lrnNYDnF6xdyDq_FdqjRYlz3mJgg.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
