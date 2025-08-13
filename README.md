@@ -10,7 +10,7 @@
 - 2025/08/08 [E199 保险又要涨价了？究竟是恐慌营销，还是入场好时机，这回我们聊明白了！](https://www.xiaoyuzhoufm.com/episode/68959bf846542d8c411f7beb) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68959bf846542d8c411f7beb/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/luf4w9nl33PbetGCrOI50eD1kKls.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/08/06 [No.162 百度的上半场：从超链分析到百度贴吧 | 中国互联网故事6](https://www.ximalaya.com/sound/896318036) | [音频](https://tk.wavpub.com/WPDL_ayhPQAHfDBUXFstNhQybhuFPWhmVsYNDxJnZcZwccjfgKTgxXreMqKKReh-3d.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/08/13 [No.163 ️ 新中国造车第一炮:一汽是怎么炼成的](https://www.ximalaya.com/sound/898874433) | [音频](https://tk.wavpub.com/WPDL_MPjyuxhUpTXBpvFhNcbWEuvtLqwASyHMePeQgPMeCpSfbcqmXqTJyMWAJj-1e.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/08/06 [Vol.219 新世界的债务危机，该由谁负责？](https://www.ximalaya.com/sound/896472169) | [音频](https://aod.cos.tx.xmcdn.com/storages/c8db-audiofreehighqps/4F/80/GKwRIaIMaS77Aa0WgAPyjgra.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
