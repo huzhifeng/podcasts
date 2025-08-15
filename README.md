@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/08/08 [E199 保险又要涨价了？究竟是恐慌营销，还是入场好时机，这回我们聊明白了！](https://www.xiaoyuzhoufm.com/episode/68959bf846542d8c411f7beb) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68959bf846542d8c411f7beb/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/luf4w9nl33PbetGCrOI50eD1kKls.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/08/15 [200 期特别篇｜祝听到这期的你，更富有，更睿智，更快乐🍻](https://www.xiaoyuzhoufm.com/episode/689edf98f9040f9dc34b6432) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/689edf98f9040f9dc34b6432/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ln5AgnvlylZi5sX_7-lEwintLj0D.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/08/13 [No.163 ️ 新中国造车第一炮:一汽是怎么炼成的](https://www.ximalaya.com/sound/898874433) | [音频](https://tk.wavpub.com/WPDL_MPjyuxhUpTXBpvFhNcbWEuvtLqwASyHMePeQgPMeCpSfbcqmXqTJyMWAJj-1e.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
