@@ -22,5 +22,5 @@
 - 2025/08/16 [第176期 安克雷奇又一年](https://hosting.wavpub.cn/pie/ep176/) | [音频](https://tk.wavpub.com/WPDL_fPrkYBvyxdLqmmrpxSJDMpQQBenQuSUwsqjRjQYJTUPjhHPtPXZWrwubWa-7c.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/08/06 [EP110 对话 Saga：红海市场的破局指南 — 你的用户不在多，在于“付费密度”有多高](https://www.xiaoyuzhoufm.com/episode/6893a2ae638b01587952b3cf) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6893a2ae638b01587952b3cf/media.xyzcdn.net/640ee2438be5d40013fe4a87/lrnNYDnF6xdyDq_FdqjRYlz3mJgg.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/08/18 [EP111 写 Vue 代码比尤雨溪还多的男人，四年两百万的商业化之路｜ 对谈 金州：Ant Design Vue 作者](https://www.xiaoyuzhoufm.com/episode/68a33f73293471fed442ca99) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/68a33f73293471fed442ca99/media.xyzcdn.net/640ee2438be5d40013fe4a87/lp5b_5XuIr-m10DS08DCYsT-FWH8.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
