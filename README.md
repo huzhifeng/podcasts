@@ -10,7 +10,7 @@
 - 2025/08/15 [200 期特别篇｜祝听到这期的你，更富有，更睿智，更快乐🍻](https://www.xiaoyuzhoufm.com/episode/689edf98f9040f9dc34b6432) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/689edf98f9040f9dc34b6432/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ln5AgnvlylZi5sX_7-lEwintLj0D.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/08/13 [No.163 ️ 新中国造车第一炮:一汽是怎么炼成的](https://www.ximalaya.com/sound/898874433) | [音频](https://tk.wavpub.com/WPDL_MPjyuxhUpTXBpvFhNcbWEuvtLqwASyHMePeQgPMeCpSfbcqmXqTJyMWAJj-1e.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/08/20 [No.164 ️ 三落三起不容易，千山万壑出二汽](https://www.ximalaya.com/sound/901509043) | [音频](https://tk.wavpub.com/WPDL_aEhsbszgjfMAqDdTPJyhcceEWzfLyhXmvBkmEqjhjFCdcvfjAjBuVnmAQW-e5.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/08/13 [Vol.220 短视频神曲是怎样炼成的？](https://www.ximalaya.com/sound/899086387) | [音频](https://aod.cos.tx.xmcdn.com/storages/1f62-audiofreehighqps/8F/82/GKwRIJEMcmGFAO1cEAP3mpbC.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
