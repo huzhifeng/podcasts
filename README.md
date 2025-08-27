@@ -10,7 +10,7 @@
 - 2025/08/22 [E201 从社保新规聊起：养老、生育以及东亚人的城市生活焦虑](https://www.xiaoyuzhoufm.com/episode/68a8166442cc2798e7dad339) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68a8166442cc2798e7dad339/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ltX1w8rnpHEWcnHt2P6O2ceWbau8.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/08/20 [No.164 ️ 三落三起不容易，千山万壑出二汽](https://www.ximalaya.com/sound/901509043) | [音频](https://tk.wavpub.com/WPDL_aEhsbszgjfMAqDdTPJyhcceEWzfLyhXmvBkmEqjhjFCdcvfjAjBuVnmAQW-e5.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/08/27 [No.165 从郁金香到君子兰：泡沫永不眠](https://www.ximalaya.com/sound/903964695) | [音频](https://tk.wavpub.com/WPDL_NUYTxDLNxRGVQYgWgqvAQqbXMEPNdVRWvWDpqryeGhsVtfamdMAahkVpQx-b9.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/08/20 [Vol.221 7-ELEVEn保卫战](https://www.ximalaya.com/sound/901683308) | [音频](https://aod.cos.tx.xmcdn.com/storages/fe57-audiofreehighqps/6E/47/GKwRIRwMe507ARZmuAP8vfxW.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
