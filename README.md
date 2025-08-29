@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/08/22 [E201 从社保新规聊起：养老、生育以及东亚人的城市生活焦虑](https://www.xiaoyuzhoufm.com/episode/68a8166442cc2798e7dad339) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68a8166442cc2798e7dad339/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ltX1w8rnpHEWcnHt2P6O2ceWbau8.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/08/29 [E202 对话阳萌：如果人生是场注定结束的旅程，那就快乐且长久地去创造吧](https://www.xiaoyuzhoufm.com/episode/68b11e585faf368659f7ceb8) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68b11e585faf368659f7ceb8/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lof-CuPDrQ8RQU2Zgg5hszmLy8kx.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/08/27 [No.165 从郁金香到君子兰：泡沫永不眠](https://www.ximalaya.com/sound/903964695) | [音频](https://tk.wavpub.com/WPDL_NUYTxDLNxRGVQYgWgqvAQqbXMEPNdVRWvWDpqryeGhsVtfamdMAahkVpQx-b9.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
