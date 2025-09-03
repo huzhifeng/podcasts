@@ -7,10 +7,10 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/08/29 [E202 对话阳萌：如果人生是场注定结束的旅程，那就快乐且长久地去创造吧](https://www.xiaoyuzhoufm.com/episode/68b11e585faf368659f7ceb8) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68b11e585faf368659f7ceb8/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lof-CuPDrQ8RQU2Zgg5hszmLy8kx.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/09/03 [SP05 保罗·都铎·琼斯：交易员之神的自我修养](https://www.xiaoyuzhoufm.com/episode/68b6de8f97178f08eeeeba6c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68b6de8f97178f08eeeeba6c/media.xyzcdn.net/lq6tGA666Odwzr8dglyagUbmOauU.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/08/27 [No.165 从郁金香到君子兰：泡沫永不眠](https://www.ximalaya.com/sound/903964695) | [音频](https://tk.wavpub.com/WPDL_NUYTxDLNxRGVQYgWgqvAQqbXMEPNdVRWvWDpqryeGhsVtfamdMAahkVpQx-b9.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/09/03 [No.166 百度的下半场：失落的 O2O、搜索与 AI | 中国互联网故事7](https://www.ximalaya.com/sound/906351960) | [音频](https://tk.wavpub.com/WPDL_MGNYtGGnbhmpkSKWeQvgGnbWPPnJNkhvQenfeYGJeFHbxzdhVyzmBeHfLa-e9.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/08/31 [城市就是这样14 | 不网红的宁波，其实是宝藏城市](https://www.ximalaya.com/sound/905897126) | [音频](https://aod.cos.tx.xmcdn.com/storages/5ebc-audiofreehighqps/0D/0B/GKwRIW4MigoyAVUo3QQFNyOR.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
