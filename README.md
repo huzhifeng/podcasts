@@ -13,7 +13,7 @@
 - 2025/09/03 [No.166 百度的下半场：失落的 O2O、搜索与 AI | 中国互联网故事7](https://www.ximalaya.com/sound/906351960) | [音频](https://tk.wavpub.com/WPDL_MGNYtGGnbhmpkSKWeQvgGnbWPPnJNkhvQenfeYGJeFHbxzdhVyzmBeHfLa-e9.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/08/31 [城市就是这样14 | 不网红的宁波，其实是宝藏城市](https://www.ximalaya.com/sound/905897126) | [音频](https://aod.cos.tx.xmcdn.com/storages/5ebc-audiofreehighqps/0D/0B/GKwRIW4MigoyAVUo3QQFNyOR.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/09/03 [Vol.223 水至清则无闲鱼](https://www.ximalaya.com/sound/907087930) | [音频](https://aod.cos.tx.xmcdn.com/storages/1145-audiofreehighqps/D9/C6/GKwRIUEMjhG9AUYLiAQHdelE.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
