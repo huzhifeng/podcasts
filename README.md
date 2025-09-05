@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/09/03 [SP05 保罗·都铎·琼斯：交易员之神的自我修养](https://www.xiaoyuzhoufm.com/episode/68b6de8f97178f08eeeeba6c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68b6de8f97178f08eeeeba6c/media.xyzcdn.net/lq6tGA666Odwzr8dglyagUbmOauU.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/09/05 [E203 对话刘莘：一个哲学教授的多重人生，和他眼中的「可能世界」](https://www.xiaoyuzhoufm.com/episode/68ba617097178f08ee60253b) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68ba617097178f08ee60253b/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/luTUBO4OCOK2fUvCvXaVczbhEgz1.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/09/03 [No.166 百度的下半场：失落的 O2O、搜索与 AI | 中国互联网故事7](https://www.ximalaya.com/sound/906351960) | [音频](https://tk.wavpub.com/WPDL_MGNYtGGnbhmpkSKWeQvgGnbWPPnJNkhvQenfeYGJeFHbxzdhVyzmBeHfLa-e9.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
