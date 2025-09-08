@@ -10,7 +10,7 @@
 - 2025/09/05 [E203 对话刘莘：一个哲学教授的多重人生，和他眼中的「可能世界」](https://www.xiaoyuzhoufm.com/episode/68ba617097178f08ee60253b) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68ba617097178f08ee60253b/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/luTUBO4OCOK2fUvCvXaVczbhEgz1.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/09/03 [No.166 百度的下半场：失落的 O2O、搜索与 AI | 中国互联网故事7](https://www.ximalaya.com/sound/906351960) | [音频](https://tk.wavpub.com/WPDL_MGNYtGGnbhmpkSKWeQvgGnbWPPnJNkhvQenfeYGJeFHbxzdhVyzmBeHfLa-e9.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/09/08 [番外 10：串台曳尾于涂 | 人如何为财死，聊聊经济动机犯罪与诈骗轶事](https://www.ximalaya.com/sound/908749452) | [音频](https://tk.wavpub.com/WPDL_xEuqjjqeNHLCmUKEQzbSYQZkhugYtfQVtsbghXYsNYpjCMgsPjuAGPmjqb-e2.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/09/03 [Vol.223 水至清则无闲鱼](https://www.ximalaya.com/sound/907087930) | [音频](https://aod.cos.tx.xmcdn.com/storages/1145-audiofreehighqps/D9/C6/GKwRIUEMjhG9AUYLiAQHdelE.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
@@ -22,5 +22,5 @@
 - 2025/09/06 [第179期 胜利日纪念活动盘点](https://hosting.wavpub.cn/pie/ep179/) | [音频](https://tk.wavpub.com/WPDL_ZxeVBxqcNwBSdcwVPaWbwUNHrzCRvjWhkQWVyPuTQkZrBQNnkjXkPtEwaP-bd.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/09/01 [EP112 量子位 「AI 100」 访谈：10 倍效率 AI 播客工具 Podwise](https://www.xiaoyuzhoufm.com/episode/68b520da97178f08eea8b5a1) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/68b520da97178f08eea8b5a1/media.xyzcdn.net/640ee2438be5d40013fe4a87/locVkNWb9V4eZMBfpTadAoMfKEnY.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/09/08 [EP113 如何用网红矩阵和事件引擎，打造年收千万美元的 AI 面试神器 ｜专访 Michael](https://www.xiaoyuzhoufm.com/episode/68bed88f9eb4a493006a0999) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/68bed88f9eb4a493006a0999/media.xyzcdn.net/640ee2438be5d40013fe4a87/lgiok-m9_icd0BLAqYFNipn6aRUJ.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
