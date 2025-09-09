@@ -1,7 +1,7 @@
 # 播客
 
 ## 无人知晓
-- 2025/05/27 [E40 够与多](https://www.xiaoyuzhoufm.com/episode/682ecd8b457b22ce0df770c2) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/682ecd8b457b22ce0df770c2/media.xyzcdn.net/611719d3cb0b82e1df0ad29e/lqx1UHbtbLPSGlAcSjWewCS8fYg0.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
+- 2025/09/09 [E41 孟岩对话阿娇：我的另一面，也想被注视和欣赏](https://www.xiaoyuzhoufm.com/episode/68bfcc2c9eb4a49300876f19) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/68bfcc2c9eb4a49300876f19/media.xyzcdn.net/611719d3cb0b82e1df0ad29e/lnDBqwDZpOI_yE-KjG76ffvJUE0h.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
 
 ## 纵横四海
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
