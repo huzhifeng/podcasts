@@ -10,7 +10,7 @@
 - 2025/09/05 [E203 对话刘莘：一个哲学教授的多重人生，和他眼中的「可能世界」](https://www.xiaoyuzhoufm.com/episode/68ba617097178f08ee60253b) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68ba617097178f08ee60253b/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/luTUBO4OCOK2fUvCvXaVczbhEgz1.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/09/08 [番外 10：串台曳尾于涂 | 人如何为财死，聊聊经济动机犯罪与诈骗轶事](https://www.ximalaya.com/sound/908749452) | [音频](https://tk.wavpub.com/WPDL_xEuqjjqeNHLCmUKEQzbSYQZkhugYtfQVtsbghXYsNYpjCMgsPjuAGPmjqb-e2.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/09/10 [No.167 Why Do It? 勒布朗、李娜与“铁人”给出的答案](https://www.ximalaya.com/sound/909950397) | [音频](https://tk.wavpub.com/WPDL_aNmbAKTNqDUqXGugZAtGszktSwfZCzWLBFcxGMfCfRxHxZKckPYkEtArqq-e2.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/09/03 [Vol.223 水至清则无闲鱼](https://www.ximalaya.com/sound/907087930) | [音频](https://aod.cos.tx.xmcdn.com/storages/1145-audiofreehighqps/D9/C6/GKwRIUEMjhG9AUYLiAQHdelE.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
