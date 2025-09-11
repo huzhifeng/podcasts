@@ -13,7 +13,7 @@
 - 2025/09/10 [No.167 Why Do It? 勒布朗、李娜与“铁人”给出的答案](https://www.ximalaya.com/sound/909950397) | [音频](https://tk.wavpub.com/WPDL_aNmbAKTNqDUqXGugZAtGszktSwfZCzWLBFcxGMfCfRxHxZKckPYkEtArqq-e2.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/09/03 [Vol.223 水至清则无闲鱼](https://www.ximalaya.com/sound/907087930) | [音频](https://aod.cos.tx.xmcdn.com/storages/1145-audiofreehighqps/D9/C6/GKwRIUEMjhG9AUYLiAQHdelE.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/09/10 [Vol.224 被中国富豪和造车新势力选中的迈巴赫](https://www.ximalaya.com/sound/910003296) | [音频](https://aod.cos.tx.xmcdn.com/storages/17c0-audiofreehighqps/0E/49/GKwRIW4Ml0biAQnVYgQM0Xca.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
