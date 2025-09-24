@@ -10,7 +10,7 @@
 - 2025/09/19 [E205 爱的稀缺，当代人的隐形贫困](https://www.xiaoyuzhoufm.com/episode/68cd00c02c82c9dcca2d4075) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68cd00c02c82c9dcca2d4075/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lqKRTeYs4cCeiKvZW7aMBJuhQZEt.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/09/17 [No.168 ️ 百花齐放还是一盘散沙？中国汽车工业的两次遍地开花](https://www.ximalaya.com/sound/912264385) | [音频](https://tk.wavpub.com/WPDL_WnBWgTBynVdqQDpGKHPJWQFxxJFxnXXXmpQchrLEzcegDmPtYpbxtWgxQm-bc.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/09/24 [No.169 腾讯·上：你灰色头像还在跳动吗 | 中国互联网故事8](https://www.ximalaya.com/sound/914484994) | [音频](https://tk.wavpub.com/WPDL_TkxURMfZPTZcnKYxsPJhxQyHBZSCxYyURDGPHMBRVFYMeFjzZNaavQPamR-a2.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/09/17 [Vol.225 美国会有更多“国企”吗？](https://www.ximalaya.com/sound/912394238) | [音频](https://aod.cos.tx.xmcdn.com/storages/b008-audiofreehighqps/EA/26/GKwRIRwMoIQkAO9H_wQRl7j6.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
