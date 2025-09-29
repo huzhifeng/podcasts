@@ -22,5 +22,5 @@
 - 2025/09/27 [第182期 载入史册的弹射](https://hosting.wavpub.cn/pie/ep182/) | [音频](https://tk.wavpub.com/WPDL_HaykrrZQceQCYcAbWyaWEYhDuseypHwnsAQUenfzLzaxMYkqKXQLtwMwVv-db.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/09/08 [EP113 对话 Final Round AI：千万美金 ARR 背后的增长逻辑 - 成功不靠运气，靠的是体系](https://www.xiaoyuzhoufm.com/episode/68bed88f9eb4a493006a0999) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/68bed88f9eb4a493006a0999/media.xyzcdn.net/640ee2438be5d40013fe4a87/lgiok-m9_icd0BLAqYFNipn6aRUJ.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/09/28 [EP114 对话小宿科技 CEO William：深入探讨 AI Agent 规模化落地的核心挑战](https://www.xiaoyuzhoufm.com/episode/68d90738b4befcf7305109ef) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/68d90738b4befcf7305109ef/media.xyzcdn.net/640ee2438be5d40013fe4a87/ls8JMrH32tHAIlVLlC6r3lzZu-2b.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
