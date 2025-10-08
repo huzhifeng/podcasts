@@ -10,7 +10,7 @@
 - 2025/10/01 [SP06 彼得·林奇：普通人真的能战胜华尔街吗？](https://www.xiaoyuzhoufm.com/episode/68db9d133f5b1f8c5e2ca4e6) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68db9d133f5b1f8c5e2ca4e6/media.xyzcdn.net/lidVfaqI9LN7j8Bq5qjW9hsmuLPU.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/09/24 [No.169 腾讯·上：你灰色头像还在跳动吗 | 中国互联网故事8](https://www.ximalaya.com/sound/914484994) | [音频](https://tk.wavpub.com/WPDL_TkxURMfZPTZcnKYxsPJhxQyHBZSCxYyURDGPHMBRVFYMeFjzZNaavQPamR-a2.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/10/08 [No.170 ️ 中国合资车缘起——上海大众](https://www.ximalaya.com/sound/918731126) | [音频](https://tk.wavpub.com/WPDL_achzEbcdpguJqNJCudtWPyXLbukMBEanfjbaPUbuyGbpVvdTfePHKDPrPE-ed.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/09/24 [Vol.226 中国化的AUDI，还是纯正奥迪吗？](https://www.ximalaya.com/sound/914668908) | [音频](https://aod.cos.tx.xmcdn.com/storages/69ae-audiofreehighqps/2A/8A/GKwRIJIMqcMqASDnbAQWR5JN.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
