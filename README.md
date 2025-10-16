@@ -13,7 +13,7 @@
 - 2025/10/15 [No.171 微信与游戏：企鹅帝国的两大支柱 | 中国互联网故事9](https://www.ximalaya.com/sound/920823660) | [音频](https://tk.wavpub.com/WPDL_QZMevTqAhHuSQGpAsEXBqxVwTBPjKjBsvkbnbagJZGXQKJJmTZcqWGQJJy-a2.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/10/12 [绿点小样 | 贝泰妮：护肤品公司为什么要保护雪山的生态系统？](https://www.ximalaya.com/sound/920159519) | [音频](https://aod.cos.tx.xmcdn.com/storages/dfb7-audiofreehighqps/7C/09/GKwRIJEMwVriAGFNSgQg7uS-.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/10/15 [Vol.228 人类已经离不开屏幕，但这个行业很残酷](https://www.ximalaya.com/sound/921348137) | [音频](https://aod.cos.tx.xmcdn.com/storages/d7d6-audiofreehighqps/76/B4/GKwRIJEMxXR4AS0GOAQjCrD_.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
@@ -22,5 +22,5 @@
 - 2025/10/12 [第184期 东大是个好学生](https://hosting.wavpub.cn/pie/ep184/) | [音频](https://tk.wavpub.com/WPDL_RtEsPSpSHRUSvHrYUJNccVDwuMLkkzxQHWsUutQZZMtGwKZkgBcaXBRART-d4.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/09/28 [EP114 对话小宿科技 CEO William：深入探讨 AI Agent 规模化落地的核心挑战](https://www.xiaoyuzhoufm.com/episode/68d90738b4befcf7305109ef) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/68d90738b4befcf7305109ef/media.xyzcdn.net/640ee2438be5d40013fe4a87/ls8JMrH32tHAIlVLlC6r3lzZu-2b.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/10/15 [EP115 我们是不是在新时代还在做老软件？](https://www.xiaoyuzhoufm.com/episode/68efb58a2265473020ae0d88) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/68efb58a2265473020ae0d88/media.xyzcdn.net/640ee2438be5d40013fe4a87/lvFmXfRWMmONg9-BsoeIp5D9iJUX.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
