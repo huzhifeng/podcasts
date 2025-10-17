@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/10/10 [E207 对话朝珺：学会和自己握手言和，是一场长期练习🎾](https://www.xiaoyuzhoufm.com/episode/68e8afd8224325ea707f9f96) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68e8afd8224325ea707f9f96/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lgsvR_m87KJh9lC5KsC-SnhMNduM.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/10/17 [E208 对话杨素秋：在知识触手可得的时代，我们为什么还需要图书馆？](https://www.xiaoyuzhoufm.com/episode/68f1b7fc456ffec65e318203) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68f1b7fc456ffec65e318203/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lvmshpCs_tbjWIpaNw_hHH1t2IKX.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/10/15 [No.171 微信与游戏：企鹅帝国的两大支柱 | 中国互联网故事9](https://www.ximalaya.com/sound/920823660) | [音频](https://tk.wavpub.com/WPDL_QZMevTqAhHuSQGpAsEXBqxVwTBPjKjBsvkbnbagJZGXQKJJmTZcqWGQJJy-a2.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
