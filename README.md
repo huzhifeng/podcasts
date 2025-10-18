@@ -19,7 +19,7 @@
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2025/10/12 [第184期 东大是个好学生](https://hosting.wavpub.cn/pie/ep184/) | [音频](https://tk.wavpub.com/WPDL_RtEsPSpSHRUSvHrYUJNccVDwuMLkkzxQHWsUutQZZMtGwKZkgBcaXBRART-d4.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2025/10/18 [第185期 谁才是正常人](https://hosting.wavpub.cn/pie/ep185/) | [音频](https://tk.wavpub.com/WPDL_prNbnNkRawehCYGqmkAWqXQUZPmfKYxeFxmhGMFJYcmUpUYxWrSKAJuCKS-ff.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2025/10/15 [EP115 我们是不是在新时代还在做老软件？](https://www.xiaoyuzhoufm.com/episode/68efb58a2265473020ae0d88) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/68efb58a2265473020ae0d88/media.xyzcdn.net/640ee2438be5d40013fe4a87/lvFmXfRWMmONg9-BsoeIp5D9iJUX.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
