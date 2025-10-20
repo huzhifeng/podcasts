@@ -10,10 +10,10 @@
 - 2025/10/17 [E208 对话杨素秋：在知识触手可得的时代，我们为什么还需要图书馆？](https://www.xiaoyuzhoufm.com/episode/68f1b7fc456ffec65e318203) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68f1b7fc456ffec65e318203/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lvmshpCs_tbjWIpaNw_hHH1t2IKX.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/10/15 [No.171 微信与游戏：企鹅帝国的两大支柱 | 中国互联网故事9](https://www.ximalaya.com/sound/920823660) | [音频](https://tk.wavpub.com/WPDL_QZMevTqAhHuSQGpAsEXBqxVwTBPjKjBsvkbnbagJZGXQKJJmTZcqWGQJJy-a2.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/10/20 [No.172 阿里创业史：湖畔点兵图霸业，廿载砺剑定风波 | 中国互联网故事10](https://www.ximalaya.com/sound/922744606) | [音频](https://tk.wavpub.com/WPDL_BnVbEJEbmFXsXNXvjWumdCRcVLtpGGrcMTpyCNxFmdWRvZyGPjVwBttsvY-ff.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/10/15 [Vol.228 人类已经离不开屏幕，但这个行业很残酷](https://www.ximalaya.com/sound/921348137) | [音频](https://aod.cos.tx.xmcdn.com/storages/d7d6-audiofreehighqps/76/B4/GKwRIJEMxXR4AS0GOAQjCrD_.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/10/19 [城市就是这样15 | 重新发现泉州](https://www.ximalaya.com/sound/922726656) | [音频](https://aod.cos.tx.xmcdn.com/storages/897d-audiofreehighqps/F1/8E/GKwRIUEMyrv8AWrRqgQlwO-2.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
