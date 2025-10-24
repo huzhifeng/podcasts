@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/10/17 [E208 对话杨素秋：在知识触手可得的时代，我们为什么还需要图书馆？](https://www.xiaoyuzhoufm.com/episode/68f1b7fc456ffec65e318203) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68f1b7fc456ffec65e318203/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lvmshpCs_tbjWIpaNw_hHH1t2IKX.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/10/24 [E209 对话罗振宇：把自己创造出来](https://www.xiaoyuzhoufm.com/episode/68fb25c40156720321d693ec) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/68fb25c40156720321d693ec/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lmdY-K4pS7q_b-K0qxhBXGvsVpC8.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/10/23 [No.173 中国操作系统简史：从混沌初开到鸿蒙降世](https://www.ximalaya.com/sound/923870452) | [音频](https://tk.wavpub.com/WPDL_JDtCwYPmBkBTPFPXyqCxZzMZxFNrgCeGbSZFMJJNdRuYPfDStuDYCZVhGX-04.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
