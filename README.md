@@ -7,10 +7,10 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/10/31 [E210 有钱真好！6 个普通人的生活修复时刻 | 小酒馆故事会🍻](https://www.xiaoyuzhoufm.com/episode/69046b7b65ab4ef684c481b0) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69046b7b65ab4ef684c481b0/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lsCua1OX6YltZ5-aEWToymTS2sSU.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/11/05 [SP07 比尔·格罗斯：债券之王](https://www.xiaoyuzhoufm.com/episode/690ac2c8af4fc00da72f5417) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/690ac2c8af4fc00da72f5417/media.xyzcdn.net/lkLEv7lDR9PN6RmHzs5eKmf150qj.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/10/29 [No.174 阿里巨头史：是非成败一念间，旧城之王少年归 | 中国互联网故事11](https://www.ximalaya.com/sound/925920857) | [音频](https://tk.wavpub.com/WPDL_sfrLCFUEYnfEAAACBtfkguyfgKagQDQwtwMxdusxbeXrVrqkZZGUnPXBhj-0e.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/11/05 [No.175 ️ 中国合资车“三大三小”沉浮录：捷达、富康、夏利们的时代印记](https://www.ximalaya.com/sound/928366692) | [音频](https://tk.wavpub.com/WPDL_hTSFBCSjkKdyjpYGefgpuWEYfnYvHyvKThETubzyqnZKQgHxZSLyFpqHmU-cf.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/10/29 [Vol.230 为什么人人都知道诺贝尔奖？](https://www.ximalaya.com/sound/926123824) | [音频](https://aod.cos.tx.xmcdn.com/storages/bb17-audiofreehighqps/E0/46/GKwRIUEM1-_OARx_qQQsQLR9.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
