@@ -13,7 +13,7 @@
 - 2025/11/05 [No.175 ️ 中国合资车“三大三小”沉浮录：捷达、富康、夏利们的时代印记](https://www.ximalaya.com/sound/928366692) | [音频](https://tk.wavpub.com/WPDL_hTSFBCSjkKdyjpYGefgpuWEYfnYvHyvKThETubzyqnZKQgHxZSLyFpqHmU-cf.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/10/29 [Vol.230 为什么人人都知道诺贝尔奖？](https://www.ximalaya.com/sound/926123824) | [音频](https://aod.cos.tx.xmcdn.com/storages/bb17-audiofreehighqps/E0/46/GKwRIUEM1-_OARx_qQQsQLR9.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/11/05 [Vol.231 星巴克中国不是许愿池](https://www.ximalaya.com/sound/928483510) | [音频](https://aod.cos.tx.xmcdn.com/storages/22f8-audiofreehighqps/12/B2/GKwRIaIM4RpXAOsydQQwqVD6.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
