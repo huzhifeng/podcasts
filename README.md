@@ -13,7 +13,7 @@
 - 2025/11/12 [No.176 ️ 从李书福到吉利：“汽车疯子”的五次创业](https://www.ximalaya.com/sound/930384432) | [音频](https://tk.wavpub.com/WPDL_ZYUtacvBDFswPWHJvMvKyfAANdaJNUptrjqLaeXjpHmdmAdGSfPdwNuCSN-30.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/11/05 [Vol.231 星巴克中国不是许愿池](https://www.ximalaya.com/sound/928483510) | [音频](https://aod.cos.tx.xmcdn.com/storages/22f8-audiofreehighqps/12/B2/GKwRIaIM4RpXAOsydQQwqVD6.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/11/12 [Vol.232 达美乐的中国业绩为何能反转？](https://www.ximalaya.com/sound/930737158) | [音频](https://aod.cos.tx.xmcdn.com/storages/649e-audiofreehighqps/5F/9C/GKwRIJIM6nOXARluCwQ03IUg.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
