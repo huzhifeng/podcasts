@@ -10,7 +10,7 @@
 - 2025/11/14 [E212 对话叶晓阳：好的系统会保护普通人，可高考志愿制度还远远不够](https://www.xiaoyuzhoufm.com/episode/6916d6a8cbba038b428301aa) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6916d6a8cbba038b428301aa/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lsgpEguwQLhoEcn7MBtJ5123YiFX.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/11/12 [No.176 ️ 从李书福到吉利：“汽车疯子”的五次创业](https://www.ximalaya.com/sound/930384432) | [音频](https://tk.wavpub.com/WPDL_ZYUtacvBDFswPWHJvMvKyfAANdaJNUptrjqLaeXjpHmdmAdGSfPdwNuCSN-e1.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/11/19 [No.177 1874 年、草地、日出、疯子与落选者：印象派的诞生与商业奇旅](https://www.ximalaya.com/sound/932386094) | [音频](https://tk.wavpub.com/WPDL_QDYyhRJnhwnQqXbuRnfcsBdtXQELPULSLCDjRwuXdvmMBpsqcyWDYcmknY-09.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/11/16 [城市就是这样16 | 中小机场怎么也有国际航线？](https://www.ximalaya.com/sound/931860276) | [音频](https://aod.cos.tx.xmcdn.com/storages/32b7-audiofreehighqps/48/28/GKwRIasM76TpAQp4YAQ2-DdD.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
