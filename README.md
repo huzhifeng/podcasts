@@ -10,7 +10,7 @@
 - 2025/11/21 [E213 解码巴菲特：42 年传奇收益背后的模型、系统与选择](https://www.xiaoyuzhoufm.com/episode/6920103fcbba038b429d9f7a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6920103fcbba038b429d9f7a/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lgloI8BolQOl1l_HQOO7hQN3rFQB.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/11/19 [No.177 1874 年、草地、日出、疯子与落选者：印象派的诞生与商业奇旅](https://www.ximalaya.com/sound/932386094) | [音频](https://tk.wavpub.com/WPDL_QDYyhRJnhwnQqXbuRnfcsBdtXQELPULSLCDjRwuXdvmMBpsqcyWDYcmknY-09.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/11/26 [No.178 ️ 生死李书福：穷小子娶洋媳妇还是骑士救公主？](https://www.ximalaya.com/sound/934402763) | [音频](https://tk.wavpub.com/WPDL_MDPREbTDsshaupyWhkFDnKNbTCvcZGPWbFVwmFyWEGjWmqRQzkdmpfYJJn-f7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/11/19 [Vol.233 为什么爱尔兰会成为“避税天堂”？](https://www.ximalaya.com/sound/932802185) | [音频](https://aod.cos.tx.xmcdn.com/storages/bbe2-audiofreehighqps/6B/71/GKwRIMAM85a7AXmPigQ4o3en.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
