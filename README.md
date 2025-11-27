@@ -13,7 +13,7 @@
 - 2025/11/26 [No.178 ️ 生死李书福：穷小子娶洋媳妇还是骑士救公主？](https://www.ximalaya.com/sound/934402763) | [音频](https://tk.wavpub.com/WPDL_MDPREbTDsshaupyWhkFDnKNbTCvcZGPWbFVwmFyWEGjWmqRQzkdmpfYJJn-f7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/11/19 [Vol.233 为什么爱尔兰会成为“避税天堂”？](https://www.ximalaya.com/sound/932802185) | [音频](https://aod.cos.tx.xmcdn.com/storages/bbe2-audiofreehighqps/6B/71/GKwRIMAM85a7AXmPigQ4o3en.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/11/26 [Vol.234 小历史 | LVMH的一年、一个月和一天](https://www.ximalaya.com/sound/935064725) | [音频](https://aod.cos.tx.xmcdn.com/storages/ba75-audiofreehighqps/58/7F/GKwRIUEM_N4dAjYcdAQ8yOg1.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
