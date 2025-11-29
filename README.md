@@ -18,3 +18,9 @@
 ## 硬地骇客
 - 2025/11/23 [EP117 豆包月活过亿，阿里再造「千问」是不是晚了？](https://www.xiaoyuzhoufm.com/episode/69236db36018cc2c983d8b54) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/69236db36018cc2c983d8b54/media.xyzcdn.net/640ee2438be5d40013fe4a87/lmp0PzdIg2iJOW5k3cNnnvVqq6Sa.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
+## 半拿铁
+- 2025/11/26 [No.178 ️ 生死李书福：穷小子娶洋媳妇还是骑士救公主？](https://www.ximalaya.com/sound/934402763) | [音频](https://tk.wavpub.com/WPDL_MDPREbTDsshaupyWhkFDnKNbTCvcZGPWbFVwmFyWEGjWmqRQzkdmpfYJJn-f7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+
+## 后互联网时代的乱弹
+- 2025/11/29 [第191期 Scaling时代终结](https://hosting.wavpub.cn/pie/ep191/) | [音频](https://tk.wavpub.com/WPDL_xzzBZZNzTvNjkNwMbSUMNXSzXfBqaJfGNujaXXHghfKXSAQyLfckmkmezx-d4.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+
