@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/12/03 [SP08 李录、比尔·阿克曼、琳达·拉施克：通往投资大师的路，从来不止一条](https://www.xiaoyuzhoufm.com/episode/692fb7a93fec3166cffd583c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/692fb7a93fec3166cffd583c/media.xyzcdn.net/lu-w1J8Jv5Tal_sTzT-vA4IMTOMT.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/12/05 [E215 对话欧阳应霁：生活可以没意义，但绝不能没意思](https://www.xiaoyuzhoufm.com/episode/6932839b4ef12f9fe90cbbba) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6932839b4ef12f9fe90cbbba/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lt2TeAxzJlR8omqiQmCW8rrIg8lo.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/12/03 [No.179 王兴的「连环」创业史：校内、饭否与海内 | 中国互联网故事12](https://www.ximalaya.com/sound/937150938) | [音频](https://tk.wavpub.com/WPDL_NSSDbUqGstkXhaRFJvSMqMFavUqXpjCCAkTkKHrLexuEWwMcfXtAeWPTKv-47.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
