@@ -16,7 +16,7 @@
 - 2025/12/03 [Vol.235 拼好饭，便宜了谁？](https://www.ximalaya.com/sound/937200941) | [音频](https://aod.cos.tx.xmcdn.com/storages/ebb2-audiofreehighqps/6D/64/GKwRIUENBgqZARml2ARA6WsL.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
-- 2025/06/12 [对谈暂停实验室郭婷婷：聊聊写东西的科学打开方式](https://www.xiaoyuzhoufm.com/episode/684adc56574f065721d5960c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/684adc56574f065721d5960c/media.xyzcdn.net/6034daea97755b8fc9c66480/lsg_JvFtGZ36OBuiTLgzYxJmHHUx.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
+- 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
 - 2025/12/06 [第192期 轻罪治理难题](https://hosting.wavpub.cn/pie/ep192/) | [音频](https://tk.wavpub.com/WPDL_tryaKpbfMJRrmqdVssRKYQCuqwPcajPeRAKYshutVrcDaqwyduwYkSVuVq-02.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
