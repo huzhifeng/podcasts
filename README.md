@@ -13,7 +13,7 @@
 - 2025/12/03 [No.179 王兴的「连环」创业史：校内、饭否与海内 | 中国互联网故事12](https://www.ximalaya.com/sound/937150938) | [音频](https://tk.wavpub.com/WPDL_NSSDbUqGstkXhaRFJvSMqMFavUqXpjCCAkTkKHrLexuEWwMcfXtAeWPTKv-47.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/12/03 [Vol.235 拼好饭，便宜了谁？](https://www.ximalaya.com/sound/937200941) | [音频](https://aod.cos.tx.xmcdn.com/storages/ebb2-audiofreehighqps/6D/64/GKwRIUENBgqZARml2ARA6WsL.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/12/07 [商业小样30 | 你的经典歌单，金融界的优质资产](https://www.ximalaya.com/sound/938274957) | [音频](https://aod.cos.tx.xmcdn.com/storages/b224-audiofreehighqps/E9/63/GKwRIUENC1CyAGY5NQRDCQg2.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
