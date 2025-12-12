@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/12/05 [E215 对话欧阳应霁：生活可以没意义，但绝不能没意思](https://www.xiaoyuzhoufm.com/episode/6932839b4ef12f9fe90cbbba) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6932839b4ef12f9fe90cbbba/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lt2TeAxzJlR8omqiQmCW8rrIg8lo.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/12/12 [E216 2025 年，我花得最幸福的一笔钱 | 小酒馆故事会🍻](https://www.xiaoyuzhoufm.com/episode/693b957037f52a644e841ee6) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/693b957037f52a644e841ee6/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/llXiib1b3CxFeEV0qcbbm5ktz7G5.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/12/10 [No.180 ️ 从廉航到无人机：一部关于梦想、技术与自由的空中进化史](https://www.ximalaya.com/sound/939042797) | [音频](https://tk.wavpub.com/WPDL_EFsyeZgnXmUFrTezpcUPzdXBeueTsatXgpRhvpnJJAXSBvYUSdFSZHVSJH-cd.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
