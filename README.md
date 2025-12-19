@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/12/12 [E216 2025 年，我花得最幸福的一笔钱 | 小酒馆故事会🍻](https://www.xiaoyuzhoufm.com/episode/693b957037f52a644e841ee6) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/693b957037f52a644e841ee6/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/llXiib1b3CxFeEV0qcbbm5ktz7G5.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2025/12/19 [E217 孟岩对话张立宪：在不确定的时代，体面地把一件事做下去](https://www.xiaoyuzhoufm.com/episode/6944f8889f70e5d6b32ad9dc) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6944f8889f70e5d6b32ad9dc/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lk1PSi9LVFaz3rJDMK7qTwaDnQdv.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2025/12/17 [No.181 王兴的无限游戏：美团团购、外卖、酒旅及其它 | 中国互联网故事13](https://www.ximalaya.com/sound/941432614) | [音频](https://tk.wavpub.com/WPDL_XJFMncSytLkrnsBJkFBfdFmhFTfXcwvZUnyhgnsTVQAGHaMuzCyxFUwJYG-48.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
