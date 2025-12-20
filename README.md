@@ -19,7 +19,7 @@
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2025/12/13 [第193期 帝国新纪元](https://hosting.wavpub.cn/pie/%e7%ac%ac193%e6%9c%9f-%e5%b8%9d%e5%9b%bd%e6%96%b0%e7%ba%aa%e5%85%83/) | [音频](https://tk.wavpub.com/WPDL_EFnsPQfgSvpkPZXKHvKFwLLTUDKcxWrdkQJqvXCUHkaXDmAtGFydqVQPus-52.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2025/12/20 [第194期 大家都爱举国体制](https://hosting.wavpub.cn/pie/ep194/) | [音频](https://tk.wavpub.com/WPDL_BSbSSgHnJYbXZMeXfCSSwfFSLpGnzKsYwkYqLzfANXUxBrfwJhLhewEUfT-e2.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2025/12/15 [EP118 对话祥宇：从 AlphaFold 到大语言模型：AI 会颠覆药物研发，还是被高估了？](https://www.xiaoyuzhoufm.com/episode/69405a112a383da1674ca11f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/69405a112a383da1674ca11f/media.xyzcdn.net/640ee2438be5d40013fe4a87/lrJkHyZ2Ow7P891bw_rUSMWLaO3M.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
