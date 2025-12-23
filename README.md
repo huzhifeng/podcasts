@@ -1,7 +1,7 @@
 # 播客
 
 ## 无人知晓
-- 2025/11/18 [E42 孟岩对话韦青：沉默的主角](https://www.xiaoyuzhoufm.com/episode/691c4384cbba038b4221f202) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/691c4384cbba038b4221f202/media.xyzcdn.net/611719d3cb0b82e1df0ad29e/lip25o2Kub9DkNPjHfgC4lz_76W0.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
+- 2025/12/23 [E43 张潇雨、孟岩对话许哲：没有更好的生活](https://www.xiaoyuzhoufm.com/episode/6943dd8252d4707aaa43990c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/6943dd8252d4707aaa43990c/media.xyzcdn.net/611719d3cb0b82e1df0ad29e/lmsNq3MWb93c_wWa4X_-eUA9Qz3D.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
 
 ## 纵横四海
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
