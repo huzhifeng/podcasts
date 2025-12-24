@@ -10,7 +10,7 @@
 - 2025/12/19 [E217 孟岩对话张立宪：在不确定的时代，体面地把一件事做下去](https://www.xiaoyuzhoufm.com/episode/6944f8889f70e5d6b32ad9dc) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6944f8889f70e5d6b32ad9dc/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lk1PSi9LVFaz3rJDMK7qTwaDnQdv.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/12/17 [No.181 王兴的无限游戏：美团团购、外卖、酒旅及其它 | 中国互联网故事13](https://www.ximalaya.com/sound/941432614) | [音频](https://tk.wavpub.com/WPDL_XJFMncSytLkrnsBJkFBfdFmhFTfXcwvZUnyhgnsTVQAGHaMuzCyxFUwJYG-48.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/12/24 [No.182 天才、资本、国家：黄金面前人人平等](https://www.ximalaya.com/sound/943248085) | [音频](https://tk.wavpub.com/WPDL_AjSGZWVynEaKAgTXjgThdrjfWLMQSWzbqrCRxtKgjRBqZQEzRAVnfWNwtW-d6.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/12/21 [城市就是这样17 | 为什么航展在珠海、糖酒会在成都？](https://www.ximalaya.com/sound/942581375) | [音频](https://aod.cos.tx.xmcdn.com/storages/e32c-audiofreehighqps/73/6A/GKwRIMANHdDJAPWaNQRLat_z.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
