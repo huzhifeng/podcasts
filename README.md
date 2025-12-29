@@ -13,7 +13,7 @@
 - 2025/12/24 [No.182 天才、资本、国家：黄金面前人人平等](https://www.ximalaya.com/sound/943248085) | [音频](https://tk.wavpub.com/WPDL_AjSGZWVynEaKAgTXjgThdrjfWLMQSWzbqrCRxtKgjRBqZQEzRAVnfWNwtW-e4.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/12/24 [Vol.238 反垄断猛如虎，奈飞还要买买买](https://www.ximalaya.com/sound/943395238) | [音频](https://aod.cos.tx.xmcdn.com/storages/035d-audiofreehighqps/68/77/GKwRIDoNIb4OASfCMgRNBUvx.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/12/28 [商业小样31 | 海南封关，到底能带来什么好处？](https://www.ximalaya.com/sound/944463772) | [音频](https://aod.cos.tx.xmcdn.com/storages/61f4-audiofreehighqps/61/21/GKwRIDoNJwNNAHYLKARPHBVt.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
@@ -22,5 +22,5 @@
 - 2025/12/28 [第195期 你好2026](https://hosting.wavpub.cn/pie/ep195/) | [音频](https://tk.wavpub.com/WPDL_FMkHBjehxJdxdGRCzCKyXnXnuXbJCstrrwcBFGkUJGcHvqcBqwQwHbcaME-27.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2025/12/15 [EP118 对话祥宇：从 AlphaFold 到大语言模型：AI 会颠覆药物研发，还是被高估了？](https://www.xiaoyuzhoufm.com/episode/69405a112a383da1674ca11f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/69405a112a383da1674ca11f/media.xyzcdn.net/640ee2438be5d40013fe4a87/lrJkHyZ2Ow7P891bw_rUSMWLaO3M.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2025/12/28 [EP119 对话小孙：骑行800公里把自己救出深渊：宁愿每天工作22小时，我也不想再上班了](https://www.xiaoyuzhoufm.com/episode/69514abe14db1df9ef29388a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/69514abe14db1df9ef29388a/media.xyzcdn.net/640ee2438be5d40013fe4a87/lmJ5rMEBef8y8p0aYfpTQOqNHiu2.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
