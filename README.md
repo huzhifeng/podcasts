@@ -10,10 +10,10 @@
 - 2025/12/26 [E218 对话黄晓丹：如何摆脱无聊？（不是辞职）](https://www.xiaoyuzhoufm.com/episode/694e32b6dd0199213185f9c7) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/694e32b6dd0199213185f9c7/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lkRzrt74fp5XqU3ZxWASqks8CUPe.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2025/12/24 [No.182 天才、资本、国家：黄金面前人人平等](https://www.ximalaya.com/sound/943248085) | [音频](https://tk.wavpub.com/WPDL_AjSGZWVynEaKAgTXjgThdrjfWLMQSWzbqrCRxtKgjRBqZQEzRAVnfWNwtW-e4.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2025/12/31 [No.183 欧莱雅：从厨房实验室里走出的美之帝国](https://www.ximalaya.com/sound/945154593) | [音频](https://tk.wavpub.com/WPDL_VBLvfWMwtcmhJEnYxSRpsSKYwUhrzDkGGfpJAMYjmCUtdxvbkVFzsBTnse-e4.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2025/12/28 [商业小样31 | 海南封关，到底能带来什么好处？](https://www.ximalaya.com/sound/944463772) | [音频](https://aod.cos.tx.xmcdn.com/storages/61f4-audiofreehighqps/61/21/GKwRIDoNJwNNAHYLKARPHBVt.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2025/12/30 [Vol.239 2025失意大公司·国内篇](https://www.ximalaya.com/sound/945052463) | [音频](https://aod.cos.tx.xmcdn.com/storages/2f6b-audiofreehighqps/39/7F/GKwRIJINKcX6AS7tvQRQQWLz.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
