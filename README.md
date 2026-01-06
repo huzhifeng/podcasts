@@ -1,7 +1,7 @@
 # 播客
 
 ## 无人知晓
-- 2025/12/23 [E43 张潇雨、孟岩对话许哲：没有更好的生活](https://www.xiaoyuzhoufm.com/episode/6943dd8252d4707aaa43990c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/6943dd8252d4707aaa43990c/media.xyzcdn.net/611719d3cb0b82e1df0ad29e/lmsNq3MWb93c_wWa4X_-eUA9Qz3D.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
+- 2026/01/06 [E44 李晓波对话孟岩：这次，就这样吧？](https://www.xiaoyuzhoufm.com/episode/6953b7892db086f897d4447b) | [音频](https://dts-api.xiaoyuzhoufm.com/track/611719d3cb0b82e1df0ad29e/6953b7892db086f897d4447b/media.xyzcdn.net/611719d3cb0b82e1df0ad29e/lpcrvFgnsEAED-eaMbK9OFnvuQ2-.m4a) | [More](channels/%E6%97%A0%E4%BA%BA%E7%9F%A5%E6%99%93.md)
 
 ## 纵横四海
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
@@ -10,7 +10,7 @@
 - 2025/12/26 [E218 对话黄晓丹：如何摆脱无聊？（不是辞职）](https://www.xiaoyuzhoufm.com/episode/694e32b6dd0199213185f9c7) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/694e32b6dd0199213185f9c7/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lkRzrt74fp5XqU3ZxWASqks8CUPe.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/01/05 [番外 11：互联网如何重塑我们的生活与钱包](https://www.ximalaya.com/sound/946484077) | [音频](https://tk.wavpub.com/WPDL_TKDHFcPXhvQsBPvkgmKXGLbbwZRZPbyBjmRcEzhtdyjxLzfdMWbxUmhFGR-65.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/01/06 [No.184 2025 年终企划「震楼机」新闻盘点 | x半拿铁·周刊](https://www.ximalaya.com/sound/946775306) | [音频](https://tk.wavpub.com/WPDL_LCQDsjjmUtGPPcVThrFxreFJyxpnFdxnWbjFcsaRXLXNRwSqZAaJvzvraD-73.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2025/12/30 [Vol.239 2025失意大公司·国内篇](https://www.ximalaya.com/sound/945052463) | [音频](https://aod.cos.tx.xmcdn.com/storages/2f6b-audiofreehighqps/39/7F/GKwRIJINKcX6AS7tvQRQQWLz.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
