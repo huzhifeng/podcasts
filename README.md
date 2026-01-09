@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2025/12/26 [E218 对话黄晓丹：如何摆脱无聊？（不是辞职）](https://www.xiaoyuzhoufm.com/episode/694e32b6dd0199213185f9c7) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/694e32b6dd0199213185f9c7/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lkRzrt74fp5XqU3ZxWASqks8CUPe.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2026/01/09 [E219 2025 年的最后一页，我选择这样写下｜小酒馆故事会🍻](https://www.xiaoyuzhoufm.com/episode/6960a90f74b7d64ad0067f8e) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6960a90f74b7d64ad0067f8e/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lvIUCbWfqnnSE_5ki3dmTgL4AOdT.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2026/01/06 [No.184 2025 年终企划「震楼机」新闻盘点 | x半拿铁·周刊](https://www.ximalaya.com/sound/946775306) | [音频](https://tk.wavpub.com/WPDL_LCQDsjjmUtGPPcVThrFxreFJyxpnFdxnWbjFcsaRXLXNRwSqZAaJvzvraD-73.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
