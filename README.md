@@ -10,7 +10,7 @@
 - 2026/01/09 [E219 2025 年的最后一页，我选择这样写下｜小酒馆故事会🍻](https://www.xiaoyuzhoufm.com/episode/6960a90f74b7d64ad0067f8e) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6960a90f74b7d64ad0067f8e/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lvIUCbWfqnnSE_5ki3dmTgL4AOdT.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/01/11 [番外 12 ：钟馗说，我一个状元的底子，怎么就成驱魔大神了？| 完整版请转至故事篇](https://www.ximalaya.com/sound/947416790) | [音频](https://tk.wavpub.com/WPDL_AzTSxCXbXmFgEnCjcucrfLgTEECdXSWYxbWAdPrDfmyUmRmaYKPAGUxMWT-7f.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/01/14 [No.185 ️ 从“皮卡之王”到“中国SUV教父”：“保定车神”魏建军和他的长城帝国](https://www.ximalaya.com/sound/949050456) | [音频](https://tk.wavpub.com/WPDL_kZZApcjLFgNasXTgrhxEWTCLaDVZvrMzbEWtVshkLZRfhhMfMAnfYKTEBW-2a.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/01/11 [商业小样32 | 国际债券为什么有这么多怪名字？](https://www.ximalaya.com/sound/948330238) | [音频](https://aod.cos.tx.xmcdn.com/storages/b05b-audiofreehighqps/AC/3E/GKwRIW4NOYMHAFn0OgRXrQwY.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
