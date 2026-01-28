@@ -10,7 +10,7 @@
 - 2026/01/23 [E221 对话张潇雨：生活太重要，以至于不能太认真](https://www.xiaoyuzhoufm.com/episode/6972e4f5ef1cf272a7fa507a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6972e4f5ef1cf272a7fa507a/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lphqdk0DqxzS64DbuSfe9se8u-gp.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/01/21 [No.186 张一鸣与今日头条：创造没有编辑的时代 | 中国互联网故事14](https://www.ximalaya.com/sound/950957873) | [音频](https://tk.wavpub.com/WPDL_NHUFnMsWQvLdNJkWXkQcsZZfjFhzQszZnApsTAxLgtxbQZNEpGyUKgvkzh-49.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/01/28 [No.187 ️ 比亚迪发家史：造车之前那些事](https://www.ximalaya.com/sound/952802003) | [音频](https://tk.wavpub.com/WPDL_syZuEzjFzusrtsvFedfuTufTjccgyyDhDjQzKEMuMtvsnxcEzxYbCNPbrX-30.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/01/25 [商业小样33 | 抹茶饮品为什么爆发？](https://www.ximalaya.com/sound/952094608) | [音频](https://aod.cos.tx.xmcdn.com/storages/2534-audiofreehighqps/73/7C/GKwRIDoNS_yuAItY6gRfzngx.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
