@@ -7,10 +7,10 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2026/01/23 [E221 对话张潇雨：生活太重要，以至于不能太认真](https://www.xiaoyuzhoufm.com/episode/6972e4f5ef1cf272a7fa507a) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6972e4f5ef1cf272a7fa507a/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lphqdk0DqxzS64DbuSfe9se8u-gp.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2026/01/30 [E222 为什么我们总在「爱你老己」和玩命攒钱之间左右横跳？聊聊《金钱的艺术》](https://www.xiaoyuzhoufm.com/episode/697c58562fc7f49d0902395d) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/697c58562fc7f49d0902395d/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ls8oKDXS0S6f3kYnwIM1kAl83pWR.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/01/28 [No.187 ️ 比亚迪发家史：造车之前那些事](https://www.ximalaya.com/sound/952802003) | [音频](https://tk.wavpub.com/WPDL_syZuEzjFzusrtsvFedfuTufTjccgyyDhDjQzKEMuMtvsnxcEzxYbCNPbrX-30.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/01/28 [No.187 比亚迪发家史：造车之前那些事](https://www.ximalaya.com/sound/952802003) | [音频](https://tk.wavpub.com/WPDL_syZuEzjFzusrtsvFedfuTufTjccgyyDhDjQzKEMuMtvsnxcEzxYbCNPbrX-12.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/01/28 [Vol.243 中国对宜家重要吗？](https://www.ximalaya.com/sound/952912320) | [音频](https://aod.cos.tx.xmcdn.com/storages/5119-audiofreehighqps/4E/AC/GKwRIDoNT-OeAWATSgRhoDkF.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
