@@ -22,5 +22,5 @@
 - 2026/01/31 [第200期 进化](https://hosting.wavpub.cn/pie/ep200/) | [音频](https://tk.wavpub.com/WPDL_KWJRkzGzwsYKDBSYsHyHRryyMVEjAdQwSVxLaGhTRBMPPkRnbQpCEmAESy-4f.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2026/01/13 [EP120 从 Prompt 到 Agent Skills，论 Anthropic 的野心与大模型应用的终极抽象](https://www.xiaoyuzhoufm.com/episode/6966778eef1cf272a73de3c8) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6966778eef1cf272a73de3c8/media.xyzcdn.net/npVGFwL64kTCSQZvN1MNcjvCcr8k.mp3) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2026/02/01 [EP121 从 Agent Skills 到 Clawdbot（OpenClaw），论 AI 助理的执行权与失控边界](https://www.xiaoyuzhoufm.com/episode/697f9a2ab4be4c149b85137c) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/697f9a2ab4be4c149b85137c/media.xyzcdn.net/640ee2438be5d40013fe4a87/llvj1wP0cDLkbxUfaVDFP3Zc7h3e.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
