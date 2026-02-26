@@ -13,7 +13,7 @@
 - 2026/02/25 [No.190 一战再战的滴滴，与被重构的出行生活 | 中国互联网故事16](https://www.ximalaya.com/sound/958302445) | [音频](https://tk.wavpub.com/WPDL_pRTudJapsRQuUyjanhumVHejGPgywtcuzpXRXjeCnTJcVJPzWemPekjwgR-5a.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2026/02/18 [【旧番重听】艺术如何变成生意](https://www.ximalaya.com/sound/957688815) | [音频](https://aod.cos.tx.xmcdn.com/storages/489e-audiofreehighqps/33/81/GKwRIJENa4uEANEjXQRs5-_F.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2026/02/25 [Vol.246 潘通凭什么靠颜色赚钱？](https://www.ximalaya.com/sound/958975155) | [音频](https://aod.cos.tx.xmcdn.com/storages/3eff-audiofreehighqps/93/A0/GKwRIDoNdMVqATbynQRwDTHf.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
