@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2026/02/13 [E224 年终金钱树洞：比数字更复杂的，是爱与期待｜小酒馆故事会🍻](https://www.xiaoyuzhoufm.com/episode/698ed48766e2c303775413aa) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/698ed48766e2c303775413aa/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lqY9wNt07qzjFy0tLKr9VlbQ6dJ7.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2026/02/27 [E225 和丰泽聊聊：在俄罗斯种地这一年，以及我们这代人的「农村」](https://www.xiaoyuzhoufm.com/episode/69a14e48de29766da9be9728) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69a14e48de29766da9be9728/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lsXptJ_oOO7hx_MxPJxD6Kn5lxlP.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2026/02/25 [No.190 一战再战的滴滴，与被重构的出行生活 | 中国互联网故事16](https://www.ximalaya.com/sound/958302445) | [音频](https://tk.wavpub.com/WPDL_pRTudJapsRQuUyjanhumVHejGPgywtcuzpXRXjeCnTJcVJPzWemPekjwgR-5a.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
