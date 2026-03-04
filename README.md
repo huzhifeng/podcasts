@@ -10,7 +10,7 @@
 - 2026/02/27 [E225 和丰泽聊聊：在俄罗斯种地这一年，以及我们这代人的「农村」](https://www.xiaoyuzhoufm.com/episode/69a14e48de29766da9be9728) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69a14e48de29766da9be9728/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lsXptJ_oOO7hx_MxPJxD6Kn5lxlP.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/02/25 [No.190 一战再战的滴滴，与被重构的出行生活 | 中国互联网故事16](https://www.ximalaya.com/sound/958302445) | [音频](https://tk.wavpub.com/WPDL_pRTudJapsRQuUyjanhumVHejGPgywtcuzpXRXjeCnTJcVJPzWemPekjwgR-5a.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/03/04 [No.191 ️ 比亚迪进化史：造车风云路](https://www.ximalaya.com/sound/960530329) | [音频](https://tk.wavpub.com/WPDL_gqXajGzRPNyaqYrvhsLDYDRpueDhUUsrBseapGqRUGZSqkXUSqkZAatBSg-ee.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/03/01 [商业小样34 | 在Spotify里当尼日利亚人](https://www.ximalaya.com/sound/959880114) | [音频](https://aod.cos.tx.xmcdn.com/storages/ddac-audiofreehighqps/AD/2D/GKwRIMANehYKAFWAuwRyaBDg.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
