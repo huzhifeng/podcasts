@@ -13,7 +13,7 @@
 - 2026/03/11 [No.192 伊朗往事：苹果树下的表演性承诺，与石油帝国的通胀迷航](https://www.ximalaya.com/sound/962199380) | [音频](https://tk.wavpub.com/WPDL_trCDtnCtPwUDswDdaYKHjuYjMLMJeGsRGXxqEyhykhykMsVeGmbTDMYmrG-db.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2026/03/04 [Vol.247 想做跨国生意，先与汇率共舞](https://www.ximalaya.com/sound/960584328) | [音频](https://aod.cos.tx.xmcdn.com/storages/8f78-audiofreehighqps/C3/36/GKwRIaINfgTHAPaT2AR0aIi4.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2026/03/11 [Vol.248 2026中国车市四大猜想](https://www.ximalaya.com/sound/962208577) | [音频](https://aod.cos.tx.xmcdn.com/storages/ea39-audiofreehighqps/E0/0D/GKwRIJENhyhzAUljowR4K9oL.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
