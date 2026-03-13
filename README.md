@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2026/03/06 [E226 全世界都在聊 AI 和机器人，可我们家最值钱的还是房子｜房产万事屋](https://www.xiaoyuzhoufm.com/episode/69aa50a75b2d0ed0698c7538) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69aa50a75b2d0ed0698c7538/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/loGkbjeScQBmPBSW9wWQixttgqZu.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2026/03/13 [E227 疲惫经济学：为什么技术进步了，我们却更累了？](https://www.xiaoyuzhoufm.com/episode/69b3b675772ac2295bfc01d0) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69b3b675772ac2295bfc01d0/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lqcOtDXInHtccMDE92XhL7wnJb_o.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2026/03/11 [No.192 伊朗往事：苹果树下的表演性承诺，与石油帝国的通胀迷航](https://www.ximalaya.com/sound/962199380) | [音频](https://tk.wavpub.com/WPDL_trCDtnCtPwUDswDdaYKHjuYjMLMJeGsRGXxqEyhykhykMsVeGmbTDMYmrG-db.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
