@@ -19,7 +19,7 @@
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2026/03/07 [第204期 千问与玄学](https://hosting.wavpub.cn/pie/ep204/) | [音频](https://tk.wavpub.com/WPDL_rpPVAPkmdVNrXeAdSKMefxxWTzDLCmzTPsHAFcebxHGLGAashQJZwsqjMz-57.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2026/03/14 [特别篇 ④周年庆](https://hosting.wavpub.cn/pie/epsp4/) | [音频](https://tk.wavpub.com/WPDL_kPLvBDrPFmXXNzpbzctfQeGVyVhQevpAwaKrVRPEmmfcZxVQrDkrCZbeyf-0d.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2026/03/10 [EP123 当我们被 “小龙虾” （OpenClaw）接管日常 🦞](https://www.xiaoyuzhoufm.com/episode/69b04f0c2a2882aae761ee45) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/69b04f0c2a2882aae761ee45/media.xyzcdn.net/640ee2438be5d40013fe4a87/lsXo-bIQU--SJ13VA261GjEbOUoj.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
