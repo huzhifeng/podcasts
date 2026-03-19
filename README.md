@@ -21,3 +21,6 @@
 ## 硬地骇客
 - 2026/03/10 [EP123 当我们被 “小龙虾” （OpenClaw）接管日常 🦞](https://www.xiaoyuzhoufm.com/episode/69b04f0c2a2882aae761ee45) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/69b04f0c2a2882aae761ee45/media.xyzcdn.net/640ee2438be5d40013fe4a87/lsXo-bIQU--SJ13VA261GjEbOUoj.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
+## 商业就是这样
+- 2026/03/18 [Vol.249 Polymarket为什么那么准？](https://www.ximalaya.com/sound/963938598) | [音频](https://aod.cos.tx.xmcdn.com/storages/d4b4-audiofreehighqps/EB/64/GKwRIMANkJN-ASetpAR7-mJa.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+
