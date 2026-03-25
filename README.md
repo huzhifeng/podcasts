@@ -10,7 +10,7 @@
 - 2026/03/20 [E228 对话葱花：别让命运替你写下答案｜小酒馆故事会🍻](https://www.xiaoyuzhoufm.com/episode/69bcf10c2d318777c9dbf039) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69bcf10c2d318777c9dbf039/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lnI_CddlJjfe-XM1jJfDidFl_ODM.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/03/18 [No.193 ️ 造车未竟：倒在中国自主汽车黎明前的先行者](https://www.ximalaya.com/sound/963805399) | [音频](https://tk.wavpub.com/WPDL_QCBBbeJMAHAMKzUcsTtjBJanRrBuyEcZkXRzqFwzPgFumWSvJLhUFTDtBs-7b.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/03/25 [No.194 浏览器简史：打造人类使用互联网的窗户](https://www.ximalaya.com/sound/965473266) | [音频](https://tk.wavpub.com/WPDL_sfpRewRpeLvNKYEunXQQTVBkvCxZcazhfmzGXVwNVKAAFhqmMETVaMMcVn-50.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/03/22 [商业小样36 | Google发债，一百年太久只争朝夕](https://www.ximalaya.com/sound/964824248) | [音频](https://aod.cos.tx.xmcdn.com/storages/1c19-audiofreehighqps/F8/83/GKwRIMANlcPfAEv8mAR-B60e.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
