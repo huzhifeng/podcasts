@@ -13,7 +13,7 @@
 - 2026/03/25 [No.194 浏览器简史：打造人类使用互联网的窗户](https://www.ximalaya.com/sound/965473266) | [音频](https://tk.wavpub.com/WPDL_sfpRewRpeLvNKYEunXQQTVBkvCxZcazhfmzGXVwNVKAAFhqmMETVaMMcVn-50.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2026/03/22 [商业小样36 | Google发债，一百年太久只争朝夕](https://www.ximalaya.com/sound/964824248) | [音频](https://aod.cos.tx.xmcdn.com/storages/1c19-audiofreehighqps/F8/83/GKwRIMANlcPfAEv8mAR-B60e.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2026/03/25 [Vol.250 Peanuts易逝，Snoopy永存？](https://www.ximalaya.com/sound/965562974) | [音频](https://aod.cos.tx.xmcdn.com/storages/72b6-audiofreehighqps/EB/47/GKwRIDoNmbezASXsTAR_nea5.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
