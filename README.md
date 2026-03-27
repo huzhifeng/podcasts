@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2026/03/20 [E228 对话葱花：别让命运替你写下答案｜小酒馆故事会🍻](https://www.xiaoyuzhoufm.com/episode/69bcf10c2d318777c9dbf039) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69bcf10c2d318777c9dbf039/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lnI_CddlJjfe-XM1jJfDidFl_ODM.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2026/03/27 [E229 盖伊·斯皮尔：一位价值投资者的谢幕](https://www.xiaoyuzhoufm.com/episode/69c632b0536b2bb3da99f82e) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69c632b0536b2bb3da99f82e/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lrQRakfWOriGctPxgLhSCdmj8827.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2026/03/25 [No.194 浏览器简史：打造人类使用互联网的窗户](https://www.ximalaya.com/sound/965473266) | [音频](https://tk.wavpub.com/WPDL_sfpRewRpeLvNKYEunXQQTVBkvCxZcazhfmzGXVwNVKAAFhqmMETVaMMcVn-50.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
