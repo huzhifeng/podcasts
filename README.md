@@ -10,7 +10,7 @@
 - 2026/03/27 [E229 盖伊·斯皮尔：一位价值投资者的谢幕](https://www.xiaoyuzhoufm.com/episode/69c632b0536b2bb3da99f82e) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69c632b0536b2bb3da99f82e/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lrQRakfWOriGctPxgLhSCdmj8827.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/03/25 [No.194 浏览器简史：打造人类使用互联网的窗户](https://www.ximalaya.com/sound/965473266) | [音频](https://tk.wavpub.com/WPDL_sfpRewRpeLvNKYEunXQQTVBkvCxZcazhfmzGXVwNVKAAFhqmMETVaMMcVn-50.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/04/01 [No.195 从牛鬼蛇神到摩托大王：重庆首富的造车之殇](https://www.ximalaya.com/sound/966432280) | [音频](https://tk.wavpub.com/WPDL_WRGCBmujJewUAYMAyErMNSTvdgPnERZEEkQvXRfXYEKsTEBYuWsHDEbcAd-28.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/03/30 [商业小样36 | “意想不到的AI股”：康宁](https://www.ximalaya.com/sound/966661165) | [音频](https://aod.cos.tx.xmcdn.com/storages/f7db-audiofreehighqps/2C/0A/GKwRIW4NoE6jAGw9mQSCN3ed.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
