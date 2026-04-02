@@ -13,7 +13,7 @@
 - 2026/04/01 [No.195 从牛鬼蛇神到摩托大王：重庆首富的造车之殇](https://www.ximalaya.com/sound/966432280) | [音频](https://tk.wavpub.com/WPDL_WRGCBmujJewUAYMAyErMNSTvdgPnERZEEkQvXRfXYEKsTEBYuWsHDEbcAd-28.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2026/03/30 [商业小样36 | “意想不到的AI股”：康宁](https://www.ximalaya.com/sound/966661165) | [音频](https://aod.cos.tx.xmcdn.com/storages/f7db-audiofreehighqps/2C/0A/GKwRIW4NoE6jAGw9mQSCN3ed.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2026/04/01 [Vol.251 不想做小红书的“得物”开不了“韩国优衣库” feat. 现在进行时](https://www.ximalaya.com/sound/967130869) | [音频](https://aod.cos.tx.xmcdn.com/storages/1236-audiofreehighqps/ED/B3/GKwRIRwNovSDAcZg1ASDSHpM.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
