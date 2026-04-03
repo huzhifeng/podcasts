@@ -7,10 +7,10 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2026/03/27 [E229 盖伊·斯皮尔：一位价值投资者的谢幕](https://www.xiaoyuzhoufm.com/episode/69c632b0536b2bb3da99f82e) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69c632b0536b2bb3da99f82e/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lrQRakfWOriGctPxgLhSCdmj8827.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2026/04/03 [E230 一个畅想：如果有一天，人类不再需要工作😴](https://www.xiaoyuzhoufm.com/episode/69cf177ee2c8be3155407aad) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69cf177ee2c8be3155407aad/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lj-cXmx3IYOhyls2I6M_ZyWZSRm5.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/04/01 [No.195 从牛鬼蛇神到摩托大王：重庆首富的造车之殇](https://www.ximalaya.com/sound/966432280) | [音频](https://tk.wavpub.com/WPDL_WRGCBmujJewUAYMAyErMNSTvdgPnERZEEkQvXRfXYEKsTEBYuWsHDEbcAd-28.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/04/01 [No.195 从牛鬼蛇神到摩托大王：重庆首富的造车之殇](https://www.ximalaya.com/sound/966432280) | [音频](https://tk.wavpub.com/WPDL_WRGCBmujJewUAYMAyErMNSTvdgPnERZEEkQvXRfXYEKsTEBYuWsHDEbcAd-7f.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/04/01 [Vol.251 不想做小红书的“得物”开不了“韩国优衣库” feat. 现在进行时](https://www.ximalaya.com/sound/967130869) | [音频](https://aod.cos.tx.xmcdn.com/storages/1236-audiofreehighqps/ED/B3/GKwRIRwNovSDAcZg1ASDSHpM.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
