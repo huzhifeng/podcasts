@@ -22,5 +22,5 @@
 - 2026/04/18 [第209期 张雪 vs 张雪峰](https://hosting.wavpub.cn/pie/ep209/) | [音频](https://tk.wavpub.com/WPDL_ENhBXAMTzUMuQgWentkRERpjrRPThQPXuqNHmegJwHwJruFGVNytBKLasz-c5.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2026/03/30 [EP124 为什么 Agent 时代，CLI 反而成了最优解？⚡](https://www.xiaoyuzhoufm.com/episode/69caa449e2c8be3155f03013) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/69caa449e2c8be3155f03013/media.xyzcdn.net/640ee2438be5d40013fe4a87/luFh0-OXXXQTHJ_GUC7o_1MexUax.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2026/04/20 [EP125 12 个问题，搞懂 Vibe Coding 爆火真相：人人能做产品？👨‍💻](https://www.xiaoyuzhoufm.com/episode/69e669001e94ae6921be04dc) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/69e669001e94ae6921be04dc/media.xyzcdn.net/640ee2438be5d40013fe4a87/lkOkPR2Gs-GE3NsQhhlNEukEbc78.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
