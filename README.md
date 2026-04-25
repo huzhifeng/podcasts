@@ -10,7 +10,7 @@
 - 2026/04/24 [E233 在选择越来越多的今天，怎么想吃点好的更难了？｜知行小饭馆](https://www.xiaoyuzhoufm.com/episode/69eb27fd1e94ae69210da373) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69eb27fd1e94ae69210da373/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lkF3suRH0pRkbz-NF8R5DR99oqsQ.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/04/22 [No.198 ️ 拼多多：五环外起青萍末，十年撼动巨擘间 | 中国互联网18](https://www.ximalaya.com/sound/971938751) | [音频](https://tk.wavpub.com/WPDL_ZMZsgwZeRpfMKcUNaBJTNVvfTeYVXUaRuKScftVawVgAXDPhKXXBWnjTNA-53.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/04/25 [番外 14： 跟李诞聊聊播客、创作、AI 与中年](https://www.ximalaya.com/sound/972693552) | [音频](https://tk.wavpub.com/WPDL_cHYwYBMYsMfYsLjnUuLnEczguvNzdWGDHeUebGByLcARyXKnCLAYrLfPma-d8.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/04/22 [Vol.254 大牌的创意总监为什么成了高危职业？](https://www.ximalaya.com/sound/972008291) | [音频](https://aod.cos.tx.xmcdn.com/storages/e30f-audiofreehighqps/81/03/GKwRIUENvpRuARPyOgSOhzQ2.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
@@ -19,7 +19,7 @@
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2026/04/18 [第209期 张雪 vs 张雪峰](https://hosting.wavpub.cn/pie/ep209/) | [音频](https://tk.wavpub.com/WPDL_ENhBXAMTzUMuQgWentkRERpjrRPThQPXuqNHmegJwHwJruFGVNytBKLasz-c5.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2026/04/25 [第210期 DeepSeek-V4](https://hosting.wavpub.cn/pie/ep210/) | [音频](https://tk.wavpub.com/WPDL_HTeUcmMtwxNFxzcNnsjASbNSseSdnBdnXWKXzxZyEwzVVWdZaDjGhDRsRb-4f.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2026/04/20 [EP125 12 个问题，搞懂 Vibe Coding 爆火真相：人人能做产品？👨‍💻](https://www.xiaoyuzhoufm.com/episode/69e669001e94ae6921be04dc) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/69e669001e94ae6921be04dc/media.xyzcdn.net/640ee2438be5d40013fe4a87/lkOkPR2Gs-GE3NsQhhlNEukEbc78.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
