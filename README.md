@@ -10,7 +10,7 @@
 - 2026/04/24 [E233 在选择越来越多的今天，怎么想吃点好的更难了？｜知行小饭馆](https://www.xiaoyuzhoufm.com/episode/69eb27fd1e94ae69210da373) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69eb27fd1e94ae69210da373/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lkF3suRH0pRkbz-NF8R5DR99oqsQ.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/04/29 [No.199 自行车 200年](https://www.ximalaya.com/sound/973489465) | [音频](https://tk.wavpub.com/WPDL_LJQzHzKaTtckjenYvLXsDDMWCUSKcBEmwQpYedZkykCuLREbNnUzyzTQvF-c7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/05/06 [No.200 ⚔️ 电商三国之群雄逐鹿：腰挂公章、持剑拒签，以及 108 种死法](https://www.ximalaya.com/sound/974601500) | [音频](https://tk.wavpub.com/WPDL_uRdUZZhdqpcrtczGBBgjFjNzvzsqXCdpzQcMhCRkTHqTkNLXBNAmPLjARP-14.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/04/29 [【一则好消息】](https://www.ximalaya.com/sound/973343168) | [音频](https://aod.cos.tx.xmcdn.com/storages/afce-audiofreehighqps/9B/69/GKwRIDoNxpYaAAsICASRbG6S.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
