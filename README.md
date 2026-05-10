@@ -19,7 +19,7 @@
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2026/05/03 [第211期 Manus 案的启示](https://hosting.wavpub.cn/pie/ep211/) | [音频](https://tk.wavpub.com/WPDL_AjsSEHvbYHsrTLxhWFqLAGamMqQXeBpDDWXvjKCPZJjyXAKqReydKPLURx-6d.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2026/05/10 [第212期 穷玩 AI](https://hosting.wavpub.cn/pie/ep212/) | [音频](https://tk.wavpub.com/WPDL_FuhyLjgMFmzVpSTTXkWyXGgvurVeKWHqLSPtpMnqhmQfVnYpjvWJpAbFrS-ab.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2026/04/20 [EP125 12 个问题，搞懂 Vibe Coding 爆火真相：人人能做产品？👨‍💻](https://www.xiaoyuzhoufm.com/episode/69e669001e94ae6921be04dc) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/69e669001e94ae6921be04dc/media.xyzcdn.net/640ee2438be5d40013fe4a87/lkOkPR2Gs-GE3NsQhhlNEukEbc78.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
