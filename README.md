@@ -13,7 +13,7 @@
 - 2026/05/06 [No.200 ⚔️ 电商三国之群雄逐鹿：腰挂公章、持剑拒签，以及 108 种死法](https://www.ximalaya.com/sound/974601500) | [音频](https://tk.wavpub.com/WPDL_uRdUZZhdqpcrtczGBBgjFjNzvzsqXCdpzQcMhCRkTHqTkNLXBNAmPLjARP-14.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2026/05/06 [Vol.255 戴比尔斯与破灭的钻石神话](https://www.ximalaya.com/sound/974874020) | [音频](https://aod.cos.tx.xmcdn.com/storages/cafe-audiofreehighqps/F5/EC/GKwRIDoN0RolASLO8QSVNRjk.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2026/05/10 [商业小样39 | 汽车轮胎涨价两轮，为何无人知晓？](https://www.ximalaya.com/sound/975707001) | [音频](https://aod.cos.tx.xmcdn.com/storages/41f8-audiofreehighqps/C8/B2/GKwRIW4N1lpxAEX8mwSXPhsE.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
