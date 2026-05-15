@@ -7,13 +7,13 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2026/05/08 [E234 当我不再被工作定义！5 个普通人的价值感重建时刻｜小酒馆故事会 🍻](https://www.xiaoyuzhoufm.com/episode/69fd8a69e1eb34a939f868c0) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/69fd8a69e1eb34a939f868c0/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/llMbRoj-IKIJJ1cncg70u0FFrCFg.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2026/05/15 [E235 与其担心 AI 改变你，不如今天就用它做一件小事](https://www.xiaoyuzhoufm.com/episode/6a06c4b91b7bd50295331e94) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a06c4b91b7bd50295331e94/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lmeX-XyuMcedD_V9Jj04ZEsFXBM3.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/05/13 [No.201 中国高铁简史](https://www.ximalaya.com/sound/976314772) | [音频](https://tk.wavpub.com/WPDL_HcKhZBGXWHxeaUDBMFhKMwDbbGWsfKGkNuLgdkgtQbDHjLyBtySpffwuJF-55.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/05/13 [No.201 中国高铁简史](https://www.ximalaya.com/sound/976314772) | [音频](https://tk.wavpub.com/WPDL_HcKhZBGXWHxeaUDBMFhKMwDbbGWsfKGkNuLgdkgtQbDHjLyBtySpffwuJF-06.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2026/05/13 [Vol.256 职业电竞，“职业”在哪儿？](https://www.ximalaya.com/sound/976428497) | [音频](https://aod.cos.tx.xmcdn.com/storages/93e2-audiofreehighqps/73/4E/GKwRIW4N2mJgAQCQYwSYx4ok.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2026/05/14 [专访腾竞体育冯骁：从业十五年，如何从0开始搭建职业电竞赛事](https://www.ximalaya.com/sound/976621470) | [音频](https://aod.cos.tx.xmcdn.com/storages/5f1b-audiofreehighqps/C4/AA/GKwRIDoN24nqAoFFXQSZL4tr.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
