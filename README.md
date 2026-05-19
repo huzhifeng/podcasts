@@ -13,7 +13,7 @@
 - 2026/05/13 [No.201 中国高铁简史](https://www.ximalaya.com/sound/976314772) | [音频](https://tk.wavpub.com/WPDL_HcKhZBGXWHxeaUDBMFhKMwDbbGWsfKGkNuLgdkgtQbDHjLyBtySpffwuJF-06.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2026/05/14 [专访腾竞体育冯骁：从业十五年，如何从0开始搭建职业电竞赛事](https://www.ximalaya.com/sound/976621470) | [音频](https://aod.cos.tx.xmcdn.com/storages/5f1b-audiofreehighqps/C4/AA/GKwRIDoN24nqAoFFXQSZL4tr.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2026/05/17 [商业小样40 | 美光和麦当劳有什么关系？](https://www.ximalaya.com/sound/977235451) | [音频](https://aod.cos.tx.xmcdn.com/storages/77f5-audiofreehighqps/41/AC/GKwRIRwN34J7AFiZrwSap7_Q.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
