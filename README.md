@@ -10,7 +10,7 @@
 - 2026/05/22 [E236 从时间管理到爱你老己：我们如何停止和自己较劲？](https://www.xiaoyuzhoufm.com/episode/6a0ffa80e59ebca9361c8451) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a0ffa80e59ebca9361c8451/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lvzBeTKxhAZNPFwvEh-ihd8vlzM5.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/05/20 [No.202 ️盛大的盛大，传奇的传奇 | 中国互联网故事20](https://www.ximalaya.com/sound/977833518) | [音频](https://tk.wavpub.com/WPDL_JNNdgLUWujTMxyxqnwmYyyRRJgatgQZZybeRztexSMPduSzDynwJCVLUty-7d.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/05/27 [No.203 ✈️ “不死鸟”兰世立](https://www.ximalaya.com/sound/979295393) | [音频](https://tk.wavpub.com/WPDL_nrDzQSAkyFEYdupPXsqnnTLmBSJLgwWUYmcWRMCjPLKTHeuEjENrJJKHML-23.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/05/24 [城市就是这样19｜沈从乐：新一线“坦白局”](https://www.ximalaya.com/sound/978850169) | [音频](https://aod.cos.tx.xmcdn.com/storages/5637-audiofreehighqps/1D/68/GKwRIDoN6NhAAcbmdQSeGskk.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
