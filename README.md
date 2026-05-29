@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2026/05/22 [E236 从时间管理到爱你老己：我们如何停止和自己较劲？](https://www.xiaoyuzhoufm.com/episode/6a0ffa80e59ebca9361c8451) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a0ffa80e59ebca9361c8451/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lvzBeTKxhAZNPFwvEh-ihd8vlzM5.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2026/05/29 [E237 出发吧，扔掉旧地图，去 AI 时代的新世界尽情探索](https://www.xiaoyuzhoufm.com/episode/6a19390a7460cabdeb57c0e5) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a19390a7460cabdeb57c0e5/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lv08xc55YxpFKtxtOt_PDiJinol9.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2026/05/27 [No.203 ✈️ “不死鸟”兰世立](https://www.ximalaya.com/sound/979295393) | [音频](https://tk.wavpub.com/WPDL_nrDzQSAkyFEYdupPXsqnnTLmBSJLgwWUYmcWRMCjPLKTHeuEjENrJJKHML-23.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
