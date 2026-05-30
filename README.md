@@ -19,7 +19,7 @@
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
 
 ## 后互联网时代的乱弹
-- 2026/05/22 [第214期 两部影片的故事](https://hosting.wavpub.cn/pie/ep214/) | [音频](https://tk.wavpub.com/WPDL_FVnFxMKJVQkAHBPRVMbdrsNQfWKSevZWqYCzacUPUNPTnGpARTzmUXEQEh-ba.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
+- 2026/05/30 [第215期 如何理解韬定律](https://hosting.wavpub.cn/pie/ep215/) | [音频](https://tk.wavpub.com/WPDL_xPGhKWcRUYDvrpcrhqfeNVXCxyAMHuAzssbLYPBrbxDhBeNbvahWgyDFUv-b1.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
 - 2026/05/12 [EP126 Agent Harness 🏇](https://www.xiaoyuzhoufm.com/episode/6a0358b3e1eb34a939468885) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6a0358b3e1eb34a939468885/media.xyzcdn.net/640ee2438be5d40013fe4a87/lhpMa_yS1MT_xSaVbgKgRH-95FGu.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
