@@ -10,10 +10,10 @@
 - 2026/05/29 [E237 出发吧，扔掉旧地图，去 AI 时代的新世界尽情探索](https://www.xiaoyuzhoufm.com/episode/6a19390a7460cabdeb57c0e5) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a19390a7460cabdeb57c0e5/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lv08xc55YxpFKtxtOt_PDiJinol9.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/05/27 [No.203 ✈️ “不死鸟”兰世立](https://www.ximalaya.com/sound/979295393) | [音频](https://tk.wavpub.com/WPDL_nrDzQSAkyFEYdupPXsqnnTLmBSJLgwWUYmcWRMCjPLKTHeuEjENrJJKHML-23.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/06/03 [No.204 互联网视频平台混战：从后舍男生到漫长的季节 | 中国互联网故事21](https://www.ximalaya.com/sound/980902194) | [音频](https://tk.wavpub.com/WPDL_zvqqdcXbeNshSwELgyLKcgLCKXSfPEgYkUyTKDnxdvGpmTcqgXdqTVtttz-ed.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2026/05/31 [商业小样41 | ZARA创始人，竟然还是全球“最大地主”](https://www.ximalaya.com/sound/980368322) | [音频](https://aod.cos.tx.xmcdn.com/storages/195b-audiofreehighqps/4C/A4/GKwRIUEN8igVADA2cAShUCep.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2026/06/03 [Vol.259 猪周期变了](https://www.ximalaya.com/sound/981027058) | [音频](https://aod.cos.tx.xmcdn.com/storages/cdb2-audiofreehighqps/2D/E3/GKwRIDoN9htWAQQkrwSisMv8.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
