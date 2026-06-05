@@ -7,10 +7,10 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2026/05/29 [E237 出发吧，扔掉旧地图，去 AI 时代的新世界尽情探索](https://www.xiaoyuzhoufm.com/episode/6a19390a7460cabdeb57c0e5) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a19390a7460cabdeb57c0e5/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lv08xc55YxpFKtxtOt_PDiJinol9.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2026/06/05 [E238 你还记得上一次停下脚步，认真感受世界的时候吗？和任宁聊一聊观鸟](https://www.xiaoyuzhoufm.com/episode/6a223578b30e1571aea0ef61) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a223578b30e1571aea0ef61/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lqxko7iq3MdfYhPMHk7ajywpHDqn.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/06/03 [No.204 互联网视频平台混战：从后舍男生到漫长的季节 | 中国互联网故事21](https://www.ximalaya.com/sound/980902194) | [音频](https://tk.wavpub.com/WPDL_zvqqdcXbeNshSwELgyLKcgLCKXSfPEgYkUyTKDnxdvGpmTcqgXdqTVtttz-ed.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/06/03 [No.204 互联网视频平台混战：从后舍男生到漫长的季节 | 中国互联网故事21](https://www.ximalaya.com/sound/980902194) | [音频](https://tk.wavpub.com/WPDL_zvqqdcXbeNshSwELgyLKcgLCKXSfPEgYkUyTKDnxdvGpmTcqgXdqTVtttz-41.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/06/04 [Vol.259 猪周期变了](https://www.ximalaya.com/sound/981079285) | [音频](https://aod.cos.tx.xmcdn.com/storages/8b5f-audiofreehighqps/00/19/GKwRIaIN9qFhAQQkrwSizQHy.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
