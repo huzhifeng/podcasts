@@ -22,5 +22,5 @@
 - 2026/06/06 [第216期 教育的体系性挑战](https://hosting.wavpub.cn/pie/ep216/) | [音频](https://tk.wavpub.com/WPDL_WuLCdsZzzgXVuNjGpyuHjJnqZUHuJpYpMmBnrWHNKtEaDSPAVhdjXVwhaK-ea.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2026/05/12 [EP126 Agent Harness 🏇](https://www.xiaoyuzhoufm.com/episode/6a0358b3e1eb34a939468885) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6a0358b3e1eb34a939468885/media.xyzcdn.net/640ee2438be5d40013fe4a87/lhpMa_yS1MT_xSaVbgKgRH-95FGu.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2026/06/09 [EP127 从 Skills 到自动化工作流，论 Agent 如何接管真实生产力 ⚙️](https://www.xiaoyuzhoufm.com/episode/6a281b8434bdac55b506eb7b) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6a281b8434bdac55b506eb7b/media.xyzcdn.net/640ee2438be5d40013fe4a87/lnTWHOXpI433ptKe-nHOHb_5lbPZ.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
