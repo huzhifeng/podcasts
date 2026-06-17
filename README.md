@@ -10,7 +10,7 @@
 - 2026/06/12 [E239 对话沈帅波：打工人的尽头还是做自媒体？大人，时代变了](https://www.xiaoyuzhoufm.com/episode/6a2bae5f4233e62bc5489e39) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a2bae5f4233e62bc5489e39/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lm3YECIH5BaU_mps0A9wB1h2xcta.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/06/10 [No.205 ⛵️ 潮汕往事：侨批、经济特区和没有等来的深圳奇迹](https://www.ximalaya.com/sound/989721046) | [音频](https://tk.wavpub.com/WPDL_qmkQdwchpGhKXBpdTVhDeTuLKhzyHvGJNRWTXEkqggmFXKjrHzkHMKAmGe-0a.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/06/17 [No.206 检索、送药、看病：互联网医疗这些年 | 中国互联网故事22](https://www.ximalaya.com/sound/991273500) | [音频](https://tk.wavpub.com/WPDL_UfDbQxRHJWYckPgMULbGgkeecrQFbrFMAYfPBuQMubgekgSChZxaktmRFm-0d.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/06/14 [城市就是这样20｜夜间经济是怎么被造出来的？](https://www.ximalaya.com/sound/990793988) | [音频](https://aod.cos.tx.xmcdn.com/storages/76cf-audiofreehighqps/63/D8/GKwRIMAOBI96AN2-_QSoqSzm.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
