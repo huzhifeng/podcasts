@@ -10,7 +10,7 @@
 - 2026/06/12 [E239 对话沈帅波：打工人的尽头还是做自媒体？大人，时代变了](https://www.xiaoyuzhoufm.com/episode/6a2bae5f4233e62bc5489e39) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a2bae5f4233e62bc5489e39/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lm3YECIH5BaU_mps0A9wB1h2xcta.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/06/18 [番外 15： 半拿铁讲金瓶梅啦，而且还是绿色的](https://www.ximalaya.com/sound/991508433) | [音频](https://tk.wavpub.com/WPDL_TLmGjmpdrGBGFRdxckDrCYFHrazaygHmJdREtaRjNPGYCTCDVYBAKqncpQ-5a.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/06/24 [No.207 闽南往事：众神人间办事处，涨海声中万国商](https://www.ximalaya.com/sound/992579918) | [音频](https://tk.wavpub.com/WPDL_FZSgXeVLddQArbFCBtqrwbsgwKCnBeRKZDBhMaypxdVrhhaTPnAmpTsZdz-a7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/06/21 [商业小样43 | AI时代，谁在给服务器“降温”](https://www.ximalaya.com/sound/992085076) | [音频](https://aod.cos.tx.xmcdn.com/storages/ba56-audiofreehighqps/C8/D8/GKwRIRwODbuXAFsMsgSrt63m.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
