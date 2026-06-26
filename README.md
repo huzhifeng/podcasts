@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2026/06/12 [E239 对话沈帅波：打工人的尽头还是做自媒体？大人，时代变了](https://www.xiaoyuzhoufm.com/episode/6a2bae5f4233e62bc5489e39) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a2bae5f4233e62bc5489e39/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lm3YECIH5BaU_mps0A9wB1h2xcta.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2026/06/26 [E240 和李井奎聊聊：那些大家都知道的事，怎么一说出口就变了？](https://www.xiaoyuzhoufm.com/episode/6a3e24889d2f5743683e3278) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a3e24889d2f5743683e3278/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lgzPs2SL3X_At7YBAbQuWlWa2wvu.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2026/06/24 [No.207 闽南往事：众神人间办事处，涨海声中万国商](https://www.ximalaya.com/sound/992579918) | [音频](https://tk.wavpub.com/WPDL_FZSgXeVLddQArbFCBtqrwbsgwKCnBeRKZDBhMaypxdVrhhaTPnAmpTsZdz-a7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
