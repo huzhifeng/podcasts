@@ -10,7 +10,7 @@
 - 2026/07/03 [E241 这次真的不一样吗？在市场喧嚣里，找到不变的参照系｜SBBI China 2025 上线](https://www.xiaoyuzhoufm.com/episode/6a4762cf2e335a35a80d789e) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a4762cf2e335a35a80d789e/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lu8xR6NKlpRwk1TAjX36MPzOBjAu.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/07/01 [No.208 中国手机江湖·上：摩托罗拉、诺基亚和爱立信的诸神黄昏 | 中国互联网故事23](https://www.ximalaya.com/sound/998056376) | [音频](https://tk.wavpub.com/WPDL_CwZbPWUMznvkWhzYqtWuehBMytGeZmNryTgEwvhUDybGbqVhUUBddLDrzu-b3.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/07/08 [No.209 晋商往事：走西口到乔家大院然后煤了](https://www.ximalaya.com/sound/999367322) | [音频](https://tk.wavpub.com/WPDL_CTkpdZesayvjFgswQbYpWRhVUzjDgfvmvXqehFCmsLgTnhZHFVaCssNSmT-20.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/07/01 [Vol.263 郎的诱惑](https://www.ximalaya.com/sound/998128018) | [音频](https://aod.cos.tx.xmcdn.com/storages/0e5e-audiofreehighqps/8C/EA/GKwRIaIOGwHAAPWELASwJ3ce.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
