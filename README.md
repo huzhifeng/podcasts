@@ -13,7 +13,7 @@
 - 2026/07/08 [No.209 晋商往事：走西口到乔家大院然后煤了](https://www.ximalaya.com/sound/999367322) | [音频](https://tk.wavpub.com/WPDL_CTkpdZesayvjFgswQbYpWRhVUzjDgfvmvXqehFCmsLgTnhZHFVaCssNSmT-20.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2026/07/01 [Vol.263 郎的诱惑](https://www.ximalaya.com/sound/998128018) | [音频](https://aod.cos.tx.xmcdn.com/storages/0e5e-audiofreehighqps/8C/EA/GKwRIaIOGwHAAPWELASwJ3ce.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2026/07/08 [Vol.264 把世界杯作为方法](https://www.ximalaya.com/sound/999416048) | [音频](https://aod.cos.tx.xmcdn.com/storages/493c-audiofreehighqps/20/A4/GKwRIDoOJB0TALR1MQSzemAN.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
