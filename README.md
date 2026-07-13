@@ -13,7 +13,7 @@
 - 2026/07/08 [No.209 晋商往事：走西口到乔家大院然后煤了](https://www.ximalaya.com/sound/999367322) | [音频](https://tk.wavpub.com/WPDL_CTkpdZesayvjFgswQbYpWRhVUzjDgfvmvXqehFCmsLgTnhZHFVaCssNSmT-20.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2026/07/08 [Vol.264 把世界杯作为方法](https://www.ximalaya.com/sound/999416048) | [音频](https://aod.cos.tx.xmcdn.com/storages/493c-audiofreehighqps/20/A4/GKwRIDoOJB0TALR1MQSzemAN.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2026/07/12 [商业小样45 | 厄尔尼诺越大，鱼越贵](https://www.ximalaya.com/sound/1000164352) | [音频](https://aod.cos.tx.xmcdn.com/storages/75f5-audiofreehighqps/75/85/GKwRIaIOKWUsAFXIrwS1hGaw.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
@@ -22,5 +22,5 @@
 - 2026/07/11 [第221期 长十乙王者归来](https://hosting.wavpub.cn/pie/ep221/) | [音频](https://tk.wavpub.com/WPDL_EhQRrmnhmxKnwSuJnCeHvShRzDDLVzrQxWVcQAbmzBjTtzKKEkfrBZjqrm-6b.mp3) | [More](channels/%E5%90%8E%E4%BA%92%E8%81%94%E7%BD%91%E6%97%B6%E4%BB%A3%E7%9A%84%E4%B9%B1%E5%BC%B9.md)
 
 ## 硬地骇客
-- 2026/06/09 [EP127 从 Skills 到自动化工作流，论 Agent 如何接管真实生产力 ⚙️](https://www.xiaoyuzhoufm.com/episode/6a281b8434bdac55b506eb7b) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6a281b8434bdac55b506eb7b/media.xyzcdn.net/640ee2438be5d40013fe4a87/lnTWHOXpI433ptKe-nHOHb_5lbPZ.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
+- 2026/07/13 [EP128 从 Palantir 到 OpenAI：FDE 会成为 AI 时代最重要的新岗位？ 🧬](https://www.xiaoyuzhoufm.com/episode/6a55209c27a4eec16c4026c5) | [音频](https://dts-api.xiaoyuzhoufm.com/track/640ee2438be5d40013fe4a87/6a55209c27a4eec16c4026c5/media.xyzcdn.net/640ee2438be5d40013fe4a87/ltozkUtZ_GVff4xu-fEYzflHVZ2U.m4a) | [More](channels/%E7%A1%AC%E5%9C%B0%E9%AA%87%E5%AE%A2.md)
 
