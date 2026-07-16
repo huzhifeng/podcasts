@@ -13,7 +13,7 @@
 - 2026/07/15 [No.210 中国手机江湖·下：从魅族小米锤子，到 OV 华为的新十年 | 中国互联网故事24](https://www.ximalaya.com/sound/1000932027) | [音频](https://tk.wavpub.com/WPDL_nxdvCdaMGjUNBJDsjzCTMUAtAMjMRKLxEqhYQTschXzjDnmLTteXhCcSzf-2b.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2026/07/12 [商业小样45 | 厄尔尼诺越大，鱼越贵](https://www.ximalaya.com/sound/1000164352) | [音频](https://aod.cos.tx.xmcdn.com/storages/75f5-audiofreehighqps/75/85/GKwRIaIOKWUsAFXIrwS1hGaw.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2026/07/15 [Vol.265 跨越50年的美国版本之子](https://www.ximalaya.com/sound/1001004591) | [音频](https://aod.cos.tx.xmcdn.com/storages/8f8f-audiofreehighqps/59/3C/GKwRIJIOLW68AS0yRgS3PIfE.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
