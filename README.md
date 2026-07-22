@@ -10,7 +10,7 @@
 - 2026/07/17 [E243 对话杨雨坤：大脑会记得，我们是怎样长大的](https://www.xiaoyuzhoufm.com/episode/6a59d6f4a3fec224d59f07fe) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a59d6f4a3fec224d59f07fe/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lr-C-AWcFhEtOgn6f3ElEc20s6yb.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/07/15 [No.210 中国手机江湖·下：从魅族小米锤子，到 OV 华为的新十年 | 中国互联网故事24](https://www.ximalaya.com/sound/1000932027) | [音频](https://tk.wavpub.com/WPDL_nxdvCdaMGjUNBJDsjzCTMUAtAMjMRKLxEqhYQTschXzjDnmLTteXhCcSzf-54.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/07/22 [No.211 徽商往事：从前世不修到最牛风投](https://www.ximalaya.com/sound/1002275189) | [音频](https://tk.wavpub.com/WPDL_smpwydvWVaHTrMnPpBMvPLjjejewcHMcNKEVuFqARcKudJQHVGwAPfHhfm-a1.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/07/19 [城市就是这样21｜ 十堰：一座因汽车而起、又不甘被汽车“抛下”的城市](https://www.ximalaya.com/sound/1001770066) | [音频](https://aod.cos.tx.xmcdn.com/storages/52f0-audiofreehighqps/77/9B/GKwRIRwOMohgATDhAQS5hmrv.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
