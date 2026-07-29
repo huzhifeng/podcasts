@@ -10,7 +10,7 @@
 - 2026/07/24 [E244 对话李筱懿：站在人生中场，我为我自己鼓掌](https://www.xiaoyuzhoufm.com/episode/6a62ce226356eb2d9be786e0) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a62ce226356eb2d9be786e0/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ligzOvnFT4IMxsv144KgLut3kQfk.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/07/22 [No.211 徽商往事：从前世不修到最牛风投](https://www.ximalaya.com/sound/1002275189) | [音频](https://tk.wavpub.com/WPDL_smpwydvWVaHTrMnPpBMvPLjjejewcHMcNKEVuFqARcKudJQHVGwAPfHhfm-bd.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/07/29 [No.212 曾经的精神角落：豆瓣、知乎、贴吧、虎扑 | 中国互联网故事25](https://www.ximalaya.com/sound/1003510980) | [音频](https://tk.wavpub.com/WPDL_rcFZxnBrLPLprHnsPnLZRBALqKtNPztCLRWDssqcMeWtqSmtPXszyvZCYT-f7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/07/26 [Vol.267 如何现场看世界杯并大亏一笔 feat.鹰眼时间](https://www.ximalaya.com/sound/1002986145) | [音频](https://aod.cos.tx.xmcdn.com/storages/9037-audiofreehighqps/06/E7/GKwRIJIOO6s_AbLYzQS9WvtE.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
