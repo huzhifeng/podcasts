@@ -7,7 +7,7 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2026/07/24 [E244 对话李筱懿：站在人生中场，我为我自己鼓掌](https://www.xiaoyuzhoufm.com/episode/6a62ce226356eb2d9be786e0) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a62ce226356eb2d9be786e0/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/ligzOvnFT4IMxsv144KgLut3kQfk.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2026/07/31 [E245 对话经济学家朱宁：1929之后，我们学会避免下一场经济危机了吗？](https://www.xiaoyuzhoufm.com/episode/6a6af251b581962ce2bdd80f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a6af251b581962ce2bdd80f/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lt3kRTtigg6jqerNTXv2imskmzaU.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
 - 2026/07/29 [No.212 曾经的精神角落：豆瓣、知乎、贴吧、虎扑 | 中国互联网故事25](https://www.ximalaya.com/sound/1003510980) | [音频](https://tk.wavpub.com/WPDL_rcFZxnBrLPLprHnsPnLZRBALqKtNPztCLRWDssqcMeWtqSmtPXszyvZCYT-f7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
