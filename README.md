@@ -10,7 +10,7 @@
 - 2026/07/31 [E245 对话经济学家朱宁：1929之后，我们学会避免下一场经济危机了吗？](https://www.xiaoyuzhoufm.com/episode/6a6af251b581962ce2bdd80f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a6af251b581962ce2bdd80f/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lt3kRTtigg6jqerNTXv2imskmzaU.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/07/29 [No.212 曾经的精神角落：豆瓣、知乎、贴吧、虎扑 | 中国互联网故事25](https://www.ximalaya.com/sound/1003510980) | [音频](https://tk.wavpub.com/WPDL_rcFZxnBrLPLprHnsPnLZRBALqKtNPztCLRWDssqcMeWtqSmtPXszyvZCYT-f7.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/08/05 [No.213 景德镇往事：千年“世界瓷都”的前世今生](https://www.ximalaya.com/sound/1004755625) | [音频](https://tk.wavpub.com/WPDL_zyEnADsGgGwEuRnuezmwmgGgSVqnUnvJXnrgrccFdRkZASmPqHGqSwhVvA-fe.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/07/29 [Vol.268 两个劳斯莱斯](https://www.ximalaya.com/sound/1003563933) | [音频](https://aod.cos.tx.xmcdn.com/storages/1599-audiofreehighqps/0C/3B/GKwRIJEOP8-YAXQZmAS_CRQK.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
