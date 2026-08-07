@@ -7,10 +7,10 @@
 - 2022/11/30 [EP01. 再见爱人2：冷暴力，攻击狂，和爱的共同账户](https://www.ximalaya.com/sound/592716797) | [音频](https://aod.cos.tx.xmcdn.com/storages/26c6-audiofreehighqps/E9/4E/GKwRIUEHXOodAq7-QQHYdhCw-aacv2-48K.m4a) | [More](channels/%E7%BA%B5%E6%A8%AA%E5%9B%9B%E6%B5%B7.md)
 
 ## 知行小酒馆
-- 2026/07/31 [E245 对话经济学家朱宁：1929之后，我们学会避免下一场经济危机了吗？](https://www.xiaoyuzhoufm.com/episode/6a6af251b581962ce2bdd80f) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a6af251b581962ce2bdd80f/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lt3kRTtigg6jqerNTXv2imskmzaU.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
+- 2026/08/07 [E246 对话「餐饮收尸人」狗哥：都说餐厅不好做，为什么还总有人开？](https://www.xiaoyuzhoufm.com/episode/6a75724dc4079d62c57eb972) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a75724dc4079d62c57eb972/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lgOZpD58t2GfkDv6LEX4QQG3QBaU.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/08/05 [No.213 景德镇往事：千年“世界瓷都”的前世今生](https://www.ximalaya.com/sound/1004755625) | [音频](https://tk.wavpub.com/WPDL_zyEnADsGgGwEuRnuezmwmgGgSVqnUnvJXnrgrccFdRkZASmPqHGqSwhVvA-fe.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/08/05 [No.213 景德镇往事：千年“世界瓷都”的前世今生](https://www.ximalaya.com/sound/1004755625) | [音频](https://tk.wavpub.com/WPDL_zyEnADsGgGwEuRnuezmwmgGgSVqnUnvJXnrgrccFdRkZASmPqHGqSwhVvA-28.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/08/05 [Vol.269 小历史 | “不要怕，是技术性调整”](https://www.ximalaya.com/sound/1004793119) | [音频](https://aod.cos.tx.xmcdn.com/storages/19dc-audiofreehighqps/9A/D9/GKwRIMAOSPK6AXCuagTCdO2E.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
