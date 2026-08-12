@@ -10,7 +10,7 @@
 - 2026/08/07 [E246 对话「餐饮收尸人」狗哥：都说餐厅不好做，为什么还总有人开？](https://www.xiaoyuzhoufm.com/episode/6a75724dc4079d62c57eb972) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6013f9f58e2f7ee375cf4216/6a75724dc4079d62c57eb972/media.xyzcdn.net/6013f9f58e2f7ee375cf4216/lgOZpD58t2GfkDv6LEX4QQG3QBaU.m4a) | [More](channels/%E7%9F%A5%E8%A1%8C%E5%B0%8F%E9%85%92%E9%A6%86.md)
 
 ## 半拿铁
-- 2026/08/05 [No.213 景德镇往事：千年“世界瓷都”的前世今生](https://www.ximalaya.com/sound/1004755625) | [音频](https://tk.wavpub.com/WPDL_zyEnADsGgGwEuRnuezmwmgGgSVqnUnvJXnrgrccFdRkZASmPqHGqSwhVvA-28.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
+- 2026/08/12 [No.214 寻找同类：小红书、bilibili，以及五花八门的那些社区 | 中国互联网故事 26](https://www.ximalaya.com/sound/1005977305) | [音频](https://tk.wavpub.com/WPDL_sxcztaVUpusxqhyjeVzgtfQpjHmuKACPaNQcqBzWetrGExdrWCkKLSjgae-ea.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
 - 2026/08/09 [商业小样46 | 买机票时，为什么总要多交两笔钱？](https://www.ximalaya.com/sound/1005487014) | [音频](https://aod.cos.tx.xmcdn.com/storages/6f52-audiofreehighqps/6E/59/GKwRIRwOTle8AESlAATEV940.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
