@@ -13,7 +13,7 @@
 - 2026/08/12 [No.214 寻找同类：小红书、bilibili，以及五花八门的那些社区 | 中国互联网故事 26](https://www.ximalaya.com/sound/1005977305) | [音频](https://tk.wavpub.com/WPDL_sxcztaVUpusxqhyjeVzgtfQpjHmuKACPaNQcqBzWetrGExdrWCkKLSjgae-ea.m4a) | [More](channels/%E5%8D%8A%E6%8B%BF%E9%93%81.md)
 
 ## 商业就是这样
-- 2026/08/09 [商业小样46 | 买机票时，为什么总要多交两笔钱？](https://www.ximalaya.com/sound/1005487014) | [音频](https://aod.cos.tx.xmcdn.com/storages/6f52-audiofreehighqps/6E/59/GKwRIRwOTle8AESlAATEV940.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
+- 2026/08/12 [Vol.270 大食代留在了它的时代](https://www.ximalaya.com/sound/1006063835) | [音频](https://aod.cos.tx.xmcdn.com/storages/2e39-audiofreehighqps/0C/C4/GKwRIMAOUkXAAN2mBQTFzW8I.m4a) | [More](channels/%E5%95%86%E4%B8%9A%E5%B0%B1%E6%98%AF%E8%BF%99%E6%A0%B7.md)
 
 ## 奇想驿
 - 2025/06/03 [【串台 · AI炼金术】和 Mars 聊聊：像设计产品一样，设计 Prompt](https://www.xiaoyuzhoufm.com/episode/683f048f31215eb506235c98) | [音频](https://dts-api.xiaoyuzhoufm.com/track/6034daea97755b8fc9c66480/683f048f31215eb506235c98/media.xyzcdn.net/6034daea97755b8fc9c66480/lkYD8TdPEbmFXBVAPx0iI534wdU_.m4a) | [More](channels/%E5%A5%87%E6%83%B3%E9%A9%BF.md)
